@@ -4,6 +4,8 @@ title: The Call of the First
 published: true
 ---
 
+<p style="font-family: Enochian Writing"><h1>ADIAI!</h1></p>
+
 This is a research blog about the Elizabethan scientist, spy and magus [Dr. John Dee](https://en.wikipedia.org/wiki/John_Dee); his compatriot Edward Kelley, a forger, psychic and oft-times Goetic conjuror; and the Enochian magical system that they together channeled over the better part of a decade.
 
 Enochian is a massively complex subject—the Calculus of magick. It has been both at the heart of the Rosicrucian thought-stream and simultaneously just outside of the reach of most Rosicrucian students. Though it formed the core of the Golden Dawn, Aleister Crowley's Thelema and the work of the rocket scientist Jack Parsons, all of these magicians only touched small parts of the system, and then only through the reconstructive lens of Golden Dawn founder MacGregor Mathers. Recent scholarly work—for instance, that of Donald Laycock, Stephen Skinner and others—has made huge strides in uncovering Dee and Kelley's original material.
