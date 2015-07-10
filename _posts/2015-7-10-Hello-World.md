@@ -4,7 +4,7 @@ title: The Call of the First
 published: true
 ---
 
-<center><p style="font-family: Enochian Writing">ADIAI!</p></center>
+<center><h1><p style="font-family: Enochian Writing">ADIAI!</p></h1></center>
 
 This is a research blog about the Elizabethan scientist, spy and magus [Dr. John Dee](https://en.wikipedia.org/wiki/John_Dee); his compatriot Edward Kelley, a forger, psychic and oft-times Goetic conjuror; and the Enochian magical system that they together channeled over the better part of a decade.
 
