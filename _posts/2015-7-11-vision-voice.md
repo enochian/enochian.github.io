@@ -110,7 +110,11 @@ Comment: Without the cube—the material world—is the sphere-system of the spi
 
 Crystal cube in form of Harpocrates, surrounded by sphere—"I am the Magician and the Exorcist. I am the axle of the wheel, and the cube in the circle. 'Come unto me' is a foolish word: for it is I that go'"—surrounded by four archangels. Suggests Pentagram ritual.
 
-New Aeon comes in at Four Quarters, in each of which an Archangel holds a book labelled back and front in Enochian. [Note: The M's are fucked in the font.] The Archangels are in black robes, their wings and armor lined out in white. All this symbolism seems to elaborate the Pentagram Ritual.
+New Aeon comes in at Four Quarters, in each of which an Archangel holds a book labelled back and front in Enochian. [Note: The M's are fucked in the font.] The Archangels are in black robes, their wings and armor lined out in white. All this symbolism seems to elaborate the Pentagram Ritual. Tetragrammaton imagery is found throughout.
+
+Crowley, from *Book 4*:
+
+*The formation of the "Yod" is the formulation of the first creative force, of that father who is called "self-begotten", and unto whom it is said: "Thou has formulated thy Father, and made fertile thy Mother". The adding of the "He" to the "Yod" is the marriage of that Father to the great co-equal Mother, who is a reflection of Nuit as He is of Hadit. Their union brings forth the son "Vau" who is the heir. Finally the daughter "He" is produced. She is both the twin sister and the daughter of "Vau". His mission is to redeem her by making her his bride; the result of this is to set her upon the throne of her mother, and it is only she whose youthful embrace can reawaken the eld of the All-Father. In this complex family relationship is symbolised the whole course of the Universe. It will be seen that (after all) the Climax is at the end. It is the second half of the formula which symbolises the Great Work which we are pledged to accomplish. The first step of this is the attainment of the Knowledge and Conversation of the Holy Guardian Angel, which constitutes the Adept of the Inner Order. The re-entry of these twin spouses into the womb of the mother is that initiation described in Liber 418, which gives admission to the Inmost Order of the A.'. A.'. Of the last step we cannot speak.*
 
 <center><h3>NORTH: FORTHSAYING OF NEW AEON</h3></center>
 <center>Book to be sealed with seals of Stars Concealed.</center>
@@ -143,6 +147,7 @@ Adepts shown in white dropping Blood (Cup of Babalon); above them the Golden Sun
 <center>Vast swastika behind Angel—17 out 25 squares of pentagram; Aleph.</center>
 
 Blessed Lord, shadow as great light, love...
+Unveiling of Son. 
 
 Formula of quarters.
 
