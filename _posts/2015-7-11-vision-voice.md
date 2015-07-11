@@ -44,7 +44,7 @@ This was recited 1,001 times per day, with each recitation followed by a prostra
 
 Crowley was now able to penetrate beyond the initial two aethyrs; his progress beyond the 19th was assisted by a specially appointed Angelic guardian; the following aethyrs concerned the equilibriation and then destruction of Crowley's individual self. By the 14th Aethyr, Crowley and Neuberg has climbed the mountain Daleh Addin—this mountain is now called Djebel Chélia or simply Chélia.
 
-![Djebel Chelia](http://m9.i.pbase.com/u41/cyrilp/upload/39543479.IMG_5858copie.jpg "Djebel Chélia")
+![Djebel Chelia](http://www.vitaminedz.com/photos/27/27067-djebel-chelia-aures.jpg "Djebel Chélia")
 
 <center><h1><p style="font-family: Enochian Writing">XET</p></h1></center>
 
