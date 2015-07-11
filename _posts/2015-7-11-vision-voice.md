@@ -36,11 +36,15 @@ For Crowley, the Enochian visions subsumed *all* prior world religions, mystery 
 
 In many ways, *The Vision and the Voice* marks the high point of Crowley's career as an Adept—now a Magister Templi—of the Golden Dawn system outlined by his mentor Mathers. Post-Algeria, Crowley would be wrapped up in the drama of a new mystery school—the Ordo Templi Orientis or OTO—and concern himself largely with its sexual methods and with instituting Thelema as a religion, with himself as the head. His research progressed along other lines, and administrative manners; however, Crowley the Pure Seeker was never quite so pristine, to be replaced with Crowley the PR Man for the Aeon.
 
-Additionally, Crowley used a Muslim mantra, from Surah 112, to enter receptive mental states, or "purify" himself as he put it:
+Additionally, Crowley used a Muslim mantra, from Surah 112, while travelling across the desert—this being done to enter receptive mental states, or "purify" himself as he put it, by creating states of absolute physical exhaustion so that his body would not disturb his mind, much like the use of *asana* in Hatha Yoga:
 
 *Qul: Huw-Allahu ahad; Allahu samad; lam yalid wa lam yulad; wa lam yakun lahu kufuwan ahad.* 
 
-This was recited 1,001 times per day. (1,001 is obviously taken from *1,001 Nights*, translated by Crowley's early hero and role model Richard Burton; it is used in this book to denote an infinitely large number, much as the number 10,000 is used in Buddhist texts. The number is indeed important in Sufism; students of the [Mevlevi](https://en.wikipedia.org/wiki/Mevlevi_Order) dervish order must undergo 1,001 days of prayer before becoming a teacher.)
+This was recited 1,001 times per day, with each recitation followed by a prostration. (1,001 is obviously taken from *1,001 Nights*, translated by Crowley's early hero and role model Richard Burton; it is used in this book to denote an infinitely large number, much as the number 10,000 is used in Buddhist texts. The number is indeed important in Sufism; students of the [Mevlevi](https://en.wikipedia.org/wiki/Mevlevi_Order) dervish order must undergo 1,001 days of prayer before becoming a teacher.)
+
+Crowley was now able to penetrate beyond the initial two aethyrs; his progress beyond the 19th was assisted by a specially appointed Angelic guardian; the following aethyrs concerned the equilibriation and then destruction of Crowley's individual self. By the 14th Aethyr, Crowley and Neuberg has climbed the mountain Daleh Addin—this mountain is now called Djebel Chélia or simply Chélia.
+
+![Djebel Chelia](http://m9.i.pbase.com/u41/cyrilp/upload/39543479.IMG_5858copie.jpg "Djebel Chélia")
 
 <center><h1><p style="font-family: Enochian Writing">XET</p></h1></center>
 
