@@ -57,7 +57,7 @@ Now being "abandoned" by his angelic guardian, Crowley was told to cross the "Ab
 
 However, this spelling is one of several things that Casaubon got wrong; Dee's diaries themselves identify this entity as "Coronzom," and this has been corrected in Stephen Skinner's revision of Casaubon. In Enochian letters, this would be:
 
-<p style="font-family: Enochian Writing">MOZNOROC</p>
+<center><h2><p style="font-family: Enochian Writing">MOZNOROC</p></h2></center>
 
 k
 
