@@ -12,11 +12,11 @@ The Scarlet Woman, who also figures centrally in Revelation, appeared to Dee and
 
 ##The Aethyrs
 
-30 consecutive Aethyrs are outlined by Kelley—they are either "dominion extening in ever widening circles without and beyond the Watchtowers of the Universe," the infinite cube formed by the four tables; or aires simply means "climes" and they pertain to different parts of the world.
+30 consecutive Aethyrs are outlined by Kelley—they are either "dominion extending in ever widening circles without and beyond the Watchtowers of the Universe," the infinite cube formed by the four tables; or aires simply means "climes" and they pertain to different parts of the world.
 
 ##Operating Procedures
 
-Crowley's initial experiments were undertaken by modifying the 19th Call for each Aethyr, and then scrying the Spirit Vision—astral travel or willed imagination—which is outlined in the grade papers of the Golden Dawn. More precise methods, involving prepartory pentagrams and grade signs, are given in his later paper *Liber Chanokh*. None of this is found in Dee and Kelley; they are Golden Dawn methods.
+Crowley's initial experiments were undertaken by modifying the 19th Call for each Aethyr, and then scrying the Spirit Vision—astral travel or willed imagination—which is outlined in the grade papers of the Golden Dawn. More precise methods, involving prepartory pentagrams and grade signs, are given in his later paper *Liber Chanokh*. None of this is found in Dee and Kelley; they are Golden Dawn methods. 9 years passed between his initial investigation of Aethyrs 30 and 29 and the Algerian experiment; this Crowley attributes to having increased his Grade or spiritual maturity to now be able to handle the visions. This factoring of the observer and their responses to messages, as well as changing information, perhaps, may be applied in reverse to Dee and Kelley.
 
 <center><h1><p style="font-family: Enochian Writing">XET</p></h1></center>
 
