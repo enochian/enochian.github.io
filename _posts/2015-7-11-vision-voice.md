@@ -38,7 +38,7 @@ In many ways, *The Vision and the Voice* marks the high point of Crowley's caree
 
 Additionally, Crowley used a Muslim mantra to
 
-<p style="font-family: 'Alef Hebrew', sans-serif;">AB</p>
+<p style="font-family: Droid Arabic Naskh">AB</p>
 
 <center><h1><p style="font-family: Enochian Writing">XET</p></h1></center>
 
