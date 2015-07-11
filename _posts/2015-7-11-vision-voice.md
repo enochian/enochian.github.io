@@ -60,9 +60,7 @@ However, this spelling is one of several things that Casaubon got wrong; Dee's d
 
 [**NOTE:** This Enochian web font, designed in 1996, is inaccurate. It uses the same character (Don) for Don (R) and Tal (M), a common beginner mistake; they are different characters. See the Enochian alphabet below. This means the final Tal or M is not correct, this would unfortunately have to be done by hand. Then again, maybe it's best not to put a demon's name online.]
 
-->
-![Enochian](https://upload.wikimedia.org/wikipedia/commons/thumb/6/61/Enochian_alphabet.png/550px-Enochian_alphabet.png "Enochian")
-<-
+->![Enochian](https://upload.wikimedia.org/wikipedia/commons/thumb/6/61/Enochian_alphabet.png/550px-Enochian_alphabet.png "Enochian")<-
 
 This demon—representing the final chaos of the mind—was evoked into a triangle using the medium of pigeon blood (three pigeons were sacrificed), in operating procedures taken from the *Göetia* or *Lesser Key of Solomon*—Kelley had been rebuked by the Angels for his prior work with Göetia. Neuberg worked as the operator while Crowley himself stood in the triangle, perhaps hoping Neuberg would "exorcise" the Choronzom complex from him totally. Crowley was possessed, broke the circle and attacked Neuberg; Neuberg banished the demon back to the triangle by vibrating the Qabalistic names of God and striking Crowley with his magical dagger. The demon returned to the triangle where it continued to psychologically attack Neuberg until the "energy" in the spilled pigeon blood was depleted. Crowley wrote the name of BABALON in the sand with his ring, and emerged from his possession trance. The ordeal lasted two hours.
 
