@@ -102,7 +102,7 @@ Crystal cube in form of Harpocrates, surrounded by sphere—"I am the Magician a
 
 New Aeon comes in at Four Quarters, in each of which an Archangel holds a book labelled back and front in Enochian. [Note: The M's are fucked in the font.] The Archangels are in black robes, their wings and armor lined out in white.
 
-<center><h3>NORTH: FORTHSAYING OF NEW AEON</h3><center>
+<center><h3>NORTH: FORTHSAYING OF NEW AEON</h3></center>
 <center>Book to be sealed with seals of Stars Concealed.</center>
 <center><p style="font-family: Enochian Writing">AMBZ</p></center>
 <center>"I AM, the surrounding of the four."</center>
@@ -120,8 +120,9 @@ New Aeon comes in at Four Quarters, in each of which an Archangel holds a book l
 <center>"It is Written, Thou shalt not tempt the Lord Thy God."</center>
 
 (East: Adepts cleansed of blood and brought to light. - Go to light by giving blood into Cup of Babalon)
-- Adepts shown in white dropping Blood (Cup of Babalon); above them the Golden Sun with an Eye, whence a great light—Kether/Horus.
-- 
+
+Adepts shown in white dropping Blood (Cup of Babalon); above them the Golden Sun with an Eye, whence a great light—Kether/Horus.
+
 <center><h3>SOUTH: CLOSING OF OLD AEON</h3><center>
 <center>Book must be sealed and must not be spoken of.</center>
 <center>Vast swastika behind Angel—17 out 25 squares of pentagram; Aleph.</center>
