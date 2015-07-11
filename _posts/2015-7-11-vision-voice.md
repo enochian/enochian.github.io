@@ -72,6 +72,18 @@ In the 9th Aethyr and beyond, and Coronzom overcome, the text appeared to Crowle
 
 The remaining Aethyrs showed progressive visions of purity and grace, until the sequence ended. (My own experiences with the 30 Aethyrs, repeated in haphazard fashion in 2006 with a group of 7 individuals, can be found in *Ultraculture Journal.*)
 
+Here, then, is a summary of the methods used by O.M. and Omnia Vincam:
+
+1. Sensory deprivation and social isolation by remaining in uninhabited desert conditions.
+2. Physical exhaustion from crossing desert while making 1,001 prostrations per day.
+3. Mental focus and emptiness by making 1,001 recitations of Surah 112 per day.
+4. The recitation of the 19th Call, modified for each Aethyr.
+5. Physically scrying into a golden topaz, while overshadowed by the Aethyr.
+6. Taboo-breaking by homosexual sex magick (passive sodomy).
+7. Göetic-style evocation AND invocation with aid of animal sacrifice for material basis.
+
+Following are analyses of each Aethyr.
+
 <center><h1><p style="font-family: Enochian Writing">XET</p></h1></center>
 
 The 30th Aethyr.
