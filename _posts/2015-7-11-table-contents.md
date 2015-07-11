@@ -6,7 +6,7 @@ published: true
 
 ####Projected Outline
 
-####I. Introduction: The Man Who Invented the Modern World
+###I. Introduction: The Man Who Invented the Modern World
 
 • An introduction to John Dee and an overview of his impact on the world. 
 
@@ -14,7 +14,7 @@ published: true
 
 • A broad, poetic evocation of Dee’s work, the high-adventure world of Elizabeth’s England and an outline of his massive impact on the world, continuing to the present day.
 
-####II. The Man Who Knew Too Much: Dee’s Early Life and Scientific Career
+###II. The Man Who Knew Too Much: Dee’s Early Life and Scientific Career
 
 • Dee’s birth and family; his father’s trial for treason and the early association of the family with scandal.
 
@@ -26,7 +26,7 @@ published: true
 
 • Dee’s work in navigation, optics and the other sciences: A rundown of his scientific contributions to the world.
 
-####III. All as Study of All
+###III. All as Study of All
 	
 • A rundown of the Hermetic tradition, how Dee’s quest for all knowledge (including the occult) makes perfect sense within the framework of “holist” Hermeticism (and much less to over-specialized modern minds).
 
@@ -36,7 +36,7 @@ published: true
 
 • The Hieroglyphic Monad, Dee’s masterwork of magick—what was he trying to say, how was it received and how did it fit into the Elizabethan episteme? (Elizabeth’s court was fascinated with the Monad.)
 
-####IV. The Ascendant Star of Empire: Dee’s Imperialism
+###IV. The Ascendant Star of Empire: Dee’s Imperialism
 
 • The appearance of a new star in 1572, and the general Millennialism of Elizabethan England within which Dee’s project was conducted.
 
@@ -48,7 +48,7 @@ published: true
 
 • Assessment of the story of the “Circle of Night,” a secret society allegedly comprising Dee, Raleigh, Drake and Shakespeare. Is there validity to Hakim Bey’s theory that The Tempest was propaganda for Dee’s imperial plan and that Prospero was a caricature of Dee?
 
-####V. The Angelic Conversations
+###V. The Angelic Conversations
 
 • A look at the progression of Dee’s occultism, from his student days to his failed experiments at angel conjuring on his own and with various scryers, including Barnabas Saul.
 
@@ -60,7 +60,7 @@ published: true
 
 • A timeline of the reception of the material. Piecing it all together. False starts and corrections. The messages of the angels: Finding both a technical overview and a cohesive narrative in the Spirit Diaries—piecing together the fragmentary Spirit Diaries scattered across many books. I imagine this will be one of the biggest sections, as it deals with the cryptic and exceedingly complex utterances of the angels which must be assessed completely on their own outside of the biographies of Dee and Kelly. What, exactly, did the angels say? I want to be very precise in this section, laying things out in granular / bulletpoint detail to help the reader make clear sense of this exceedingly complex (and often self-contradictory) material.
 
-####VI. The Angelic Reformation
+###VI. The Angelic Reformation
 
 • The Terminal Monotheism: The angels’ plan for a unification of Protestantism, Catholicism, Judaism and Islam—to be combined with Elizabeth’s terrestrial New World Order.
 
@@ -68,7 +68,7 @@ published: true
 
 • The Continental trip. King Stefan Batory and Emperor Rudolf II. Confrontation with the Papal nuncio and the Church’s plans to co-opt or silence Dee. The shockwaves that Dee’s work sent through the Church.
 
-####VII. The Daughter of Fortitude
+###VII. The Daughter of Fortitude
 
 • The infamous wife-swapping incident while on the Continent. Why did the angelic messages change? Are there parallels to be drawn between this “deconditioning” exercise and left-handed taboo breaking exercises in Sufi and Tantric circles? 
 
@@ -76,7 +76,7 @@ published: true
 
 • Dee and Kelly split. Kelly’s work as an alchemist, imprisonment and death. Dee returns to England; plague, death of Jane Dee, Dee’s ill fortunes, regime change to James I. An assessment of Dee’s ongoing occult career: Continued work with new scryers, diary hints of OTO-style sexual magick conducted with Jane Dee (!). Dee’s death; he bequeaths his gear to his alchemist son Arthur Dee.
 
-#VIII. The Rosicrucian Underground
+###VIII. The Rosicrucian Underground
 
 • Assessment of Dee’s work—and destruction of his legacy—by the Royal Society and Méric Casaubon. 
 
@@ -88,7 +88,7 @@ published: true
 
 • An assessment of Stephen Skinner’s theory of an ongoing secret tradition that carried on Dee’s angelic conjuring, and that it took place in the very upper echelons of British society. The role of Arthur Dee, Elias Ashmole, “Dr. Rudd,” Francis Hockley and others in carrying on the tradition and bridging the long gap between Dee & Kelly and the Golden Dawn.
 
-####IX. Under the Shadow of the Wings: The Influence of Dee on Occulture
+###IX. Under the Shadow of the Wings: The Influence of Dee on Occulture
 
 • High-ranking Masonic Rosicrucians Mathers, Westcott and Woodman build on Hockley’s work with Dee’s files in the British Library. The Sloane Manuscripts as likely source of the Golden Dawn, rather than the “Fräulein Sprengel” story. 
 
