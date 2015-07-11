@@ -4,8 +4,6 @@ title: The Vision & The Voice
 published: true
 ---
 
-<h1><p style="font-family: Enochian Writing">ABCDEFGHIJKLMNOPQRSTUVWXYZ</p></h1>
-
 Assessing Aleister Crowley (Frater O.M.) and Victor Neuberg's (Frater Omnia Vincam) work with the 30 Aethyrs in 1909, Algeria, from November 23 to December 19 of that year. This working elucidated and developed the Book of the Law (1904) and Thelemic Holy Books (1907), particularly *Liber VII*, and firmly established the Thelemic cosmology that would later inform the O.T.O. and Gnostic Mass. Two years later, the recieved book *Liber Cheth* further developed the iconography of BABALON:
 <center><h3><p style="font-family: Enochian Writing">NOLABAB</p></h3></center>
 The Scarlet Woman, who also figures centrally in Revelation, appeared to Dee and Kelley after the wife-swapping incident that ended their partnership, and  appeared to Crowley for the first time in the Algerian sessions. BABALON is not a part of the Golden Dawn Enochian material that Crowley drew on for these sessions, although he may well have read of the Dee and Kelley apparition in the Sloane folios in the British Library(?); Revelation, of course, formed the core of Crowley's psychology as the Bible was his sole reading material during his adolescence in the Plymouth Bretheren, leading him to identify totally with the Beast, the consort of BABALON in Revelation. Crowley thereafter formulated BABALON as the center of his sex-magical or Tantric system, overlaying the Beast/BABALON mythos to the technical sexual magick afforded him only later, in June 1912, upon his admission to the IXº O.T.O. by Theodor Reuss. Crowley, according to his *Confessions*, had read Casaubon before embarking on his Algerian trip with Neuberg, and had seen Dee and Kelley's scrying implements in the British Museum. Crowley's opinion of Kelley's transmissions is high:
@@ -60,6 +58,8 @@ Now being "abandoned" by his angelic guardian, Crowley was told to cross the "Ab
 However, this spelling is one of several things that Casaubon got wrong; Dee's diaries themselves identify this entity as "Coronzom," and this has been corrected in Stephen Skinner's revision of Casaubon. In Enochian letters, this would be:
 
 <center><h2><p style="font-family: Enochian Writing">MOZNOROC</p></h2></center>
+
+[**NOTE:** This Enochian web font, designed in 1996, is inaccurate. It uses the same character (Don) for Don (R) and Tal (M), a common beginner mistake; they are different characters. See the Enochian alphabet below. This means the final Tal or M is not correct, this would unfortunately have to be done by hand. Then again, maybe it's best not to put a demon's name online.]
 
 k
 
