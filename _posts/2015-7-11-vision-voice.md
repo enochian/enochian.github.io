@@ -88,10 +88,52 @@ Methods 1-3 would have formed a powerful separation from anything but the ritual
 
 Following are analyses of each Aethyr. I will here be referring to the following texts:
 
-Crowley, Aleister, with Victor B. Neuberg and Mary Desti. *The Vision & The Voice, With Commentary and Other Papers. (The Equinox, Vol IV, No. II)* York Beach: Weiser, 1998.
+Crowley, Aleister, with Victor B. Neuberg and Mary Desti. *The Vision & The Voice, With Commentary and Other Papers. (The Equinox, Vol. IV, No. II).* York Beach: Weiser, 1998.
 
 Eshelman, James A. *Visions & Voices: Aleister Crowley's Enochian Visions With Astrological & Qabalistic Commentary.* Los Angeles: The College of Thelema, 2011.
 
 <center><h1><p style="font-family: Enochian Writing">XET</p></h1></center>
 
-The 30th Aethyr.
+The 30th Aethyr. TEX— "The Exordium of the Equinox of the Gods." Caput Draconis / Virgo / Earth. [Malkuth, Yesod, Hod and Netzach in Malkuth. Also Hod and Netzach on the Tree. I am quite confused by these attributions in Equinox 4.2.]
+
+Comment: Without the cube—the material world—is the sphere-system of the spiritual world enfolding it. The Cry seems to be a sort of Exordium, an external shewing-forth of the coming of the new Aeon, the Aeon of Horus the crowned child.
+
+Crystal cube in form of Harpocrates, surrounded by sphere—"I am the Magician and the Exorcist. I am the axle of the wheel, and the cube in the circle. 'Come unto me» is a foolish word: for it is I that go'"—surrounded by four archangels. Suggests Pentagram ritual.
+
+New Aeon comes in at Four Quarters, in each of which an Archangel holds a book labelled back and front in Enochian. [Note: The M's are fucked in the font.] The Archangels are in black robes, their wings and armor lined out in white.
+
+<center><h3>NORTH: FORTHSAYING OF NEW AEON</h3><center>
+<center>Book to be sealed with seals of Stars Concealed.</center>
+<center><p style="font-family: Enochian Writing">AMBZ</p></center>
+<center>"I AM, the surrounding of the four."</center>
+
+(North: Destruction [aligns with Freemasonry]. - Abrogation of old formula.)
+- Day of Judgement and Opening of Eye of Shiva. (ATU XX or XVI)
+- A new Tetragrammaton must be formed; the father needs a new bride to replace the defiled (BABALON?) and YHVH has broken against the stone.
+- Trembling of pillars of eternity (Masonic, Mercy/Severity, ATU II, also LIL)—"Hail! ye twin warriors about the pillars of the world! for your time is nigh at hand"—a terrible child is unleashed. Identified as female (daughter of BABALON?)
+- Saturn+Death=Nu
+- All is destroyed and rushes together as one, producing a Triple Triad (333).
+ 
+<center><h3>EAST: OPENING OF NEW AEON</h3><center>
+<center>Red Book, Blue Letters, grows to fill whole heaven.</center>
+<center><p style="font-family: Enochian Writing">ABFMA</p></center>
+<center>"It is Written, Thou shalt not tempt the Lord Thy God."</center>
+
+(East: Adepts cleansed of blood and brought to light. - Go to light by giving blood into Cup of Babalon)
+- Adepts shown in white dropping Blood (Cup of Babalon); above them the Golden Sun with an Eye, whence a great light—Kether/Horus.
+- 
+<center><h3>SOUTH: CLOSING OF OLD AEON</h3><center>
+<center>Book must be sealed and must not be spoken of.</center>
+<center>Vast swastika behind Angel—17 out 25 squares of pentagram; Aleph.</center>
+- Blessed Lord, shadow as great light, love...
+
+- Formula of quarters.
+-   North: Destruction [aligns with Freemasonry]. - Abrogation of old formula
+-   East: Adepts cleansed of blood and brought to light. - Go to light by giving blood into Cup of Babalon
+-   South: Silence (Marriage in Binah). - Rapture of Ineffable Union
+-   West: Fate (refusing initiation). - Alternative is despair of loneliness.
+- All this symbolism seems to elaborate the Pentagram Ritual.
+- Book in East Opens New Aeon:
+<center><p style="font-family: Enochian Writing">ABFMA</p></center>
+
+
