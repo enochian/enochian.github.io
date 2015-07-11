@@ -108,10 +108,15 @@ New Aeon comes in at Four Quarters, in each of which an Archangel holds a book l
 <center>"I AM, the surrounding of the four."</center>
 
 (North: Destruction [aligns with Freemasonry]. - Abrogation of old formula.)
+
 Day of Judgement and Opening of Eye of Shiva. (ATU XX or XVI)
+
 A new Tetragrammaton must be formed; the father needs a new bride to replace the defiled (BABALON?) and YHVH has broken against the stone.
+
 Trembling of pillars of eternity (Masonic, Mercy/Severity, ATU II, also LIL)—"Hail! ye twin warriors about the pillars of the world! for your time is nigh at hand"—a terrible child is unleashed. Identified as female (daughter of BABALON?)
+
 Saturn+Death=Nu
+
 All is destroyed and rushes together as one, producing a Triple Triad (333).
  
 <center><h3>EAST: OPENING OF NEW AEON</h3><center>
@@ -126,11 +131,16 @@ Adepts shown in white dropping Blood (Cup of Babalon); above them the Golden Sun
 <center><h3>SOUTH: CLOSING OF OLD AEON</h3><center>
 <center>Book must be sealed and must not be spoken of.</center>
 <center>Vast swastika behind Angel—17 out 25 squares of pentagram; Aleph.</center>
+
 Blessed Lord, shadow as great light, love...
 
 Formula of quarters.
+
    North: Destruction [aligns with Freemasonry]. - Abrogation of old formula
+
    East: Adepts cleansed of blood and brought to light. - Go to light by giving blood into Cup of Babalon
+
    South: Silence (Marriage in Binah). - Rapture of Ineffable Union
+
    West: Fate (refusing initiation). - Alternative is despair of loneliness.
 
