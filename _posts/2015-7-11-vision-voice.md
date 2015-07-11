@@ -72,6 +72,8 @@ In the 9th Aethyr and beyond, and Coronzom overcome, the text appeared to Crowle
 
 The remaining Aethyrs showed progressive visions of purity and grace, until the sequence ended. (My own experiences with the 30 Aethyrs, repeated in haphazard fashion in 2006 with a group of 7 individuals, can be found in *Ultraculture Journal.*)
 
+##Summary of Method
+
 Here, then, is a summary of the methods used by O.M. and Omnia Vincam:
 
 1. Sensory deprivation and social isolation by remaining in uninhabited desert conditions.
