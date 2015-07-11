@@ -4,7 +4,7 @@ title: Projected Outline
 published: true
 ---
 
-####Projected Outline
+In which I assemble the key points that will be addressed in The Angelic Reformation.
 
 ###I. Introduction: The Man Who Invented the Modern World
 
