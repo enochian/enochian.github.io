@@ -98,6 +98,8 @@ The 30th Aethyr. TEX— "The Exordium of the Equinox of the Gods." Caput Draconi
 
 Comment: Without the cube—the material world—is the sphere-system of the spiritual world enfolding it. The Cry seems to be a sort of Exordium, an external shewing-forth of the coming of the new Aeon, the Aeon of Horus the crowned child.
 
+<center><img src="http://en.museicapitolini.org/var/museicivici/storage/images/musei/musei_capitolini/percorsi/percorsi_per_sale/palazzo_nuovo/salone/statua_di_arpocrate/10399-13-ita-IT/statua_di_arpocrate_largew.jpg"></center>
+
 Crystal cube in form of Harpocrates, surrounded by sphere—"I am the Magician and the Exorcist. I am the axle of the wheel, and the cube in the circle. 'Come unto me' is a foolish word: for it is I that go'"—surrounded by four archangels. Suggests Pentagram ritual.
 
 New Aeon comes in at Four Quarters, in each of which an Archangel holds a book labelled back and front in Enochian. [Note: The M's are fucked in the font.] The Archangels are in black robes, their wings and armor lined out in white. All this symbolism seems to elaborate the Pentagram Ritual.
