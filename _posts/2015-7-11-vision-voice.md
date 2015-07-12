@@ -167,8 +167,6 @@ FLASHING SWORD that the uppermost part of the Tree of Life might not be involved
 necessary that the SECOND ADAM should come to restore all things and that,as the First Adam had been extended on the Cross of
 the Celestial Rivers, so the SON should be crucified on the Cross of the Infernal Rivers of DAATH. Yet, to do this, he must descend unto the lowest first, even unto Malkuth and be born of her.*
 
-<center><img src="http://www.angelfire.com/ab6/imuhtuk/gdrolls/Image198.gif"></center>
-
 <center><h3>WEST: DOOM OF OLD AEON</h3><center>
 <center>Book must be sealed and must not be spoken of.</center>
 <center>Vast swastika behind Angel—17 out 25 squares of pentagram; Aleph.</center>
