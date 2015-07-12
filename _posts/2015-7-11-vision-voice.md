@@ -168,16 +168,11 @@ necessary that the SECOND ADAM should come to restore all things and that,as the
 the Celestial Rivers, so the SON should be crucified on the Cross of the Infernal Rivers of DAATH. Yet, to do this, he must descend unto the lowest first, even unto Malkuth and be born of her.*
 
 <center><h3>WEST: DOOM OF OLD AEON</h3><center>
-<center>Book must be sealed and must not be spoken of.</center>
-<center>Vast swastika behind Angel—17 out 25 squares of pentagram; Aleph.</center>
+<center>Flaming book.</center>
+<center><p style="font-family: Enochian Writing">AN</p></center>
+<center>Within drawn a fiery scorpion, yet cold withal.</center>
+<center>West: Fate (refusing initiation). - Alternative is despair of loneliness.</center>
 
-Formula of quarters.
-
-   North: Destruction [aligns with Freemasonry]. - Abrogation of old formula
-
-   East: Adepts cleansed of blood and brought to light. - Go to light by giving blood into Cup of Babalon
-
-   South: Silence (Marriage in Binah). - Rapture of Ineffable Union
-
-   West: Fate (refusing initiation). - Alternative is despair of loneliness.
-
+Until the Book of East is opened, look not above or below...
+YHVH/Tetragrammaton, the blind forces of the elements, bind the Uninitiate, who can reach YHShVH (man, master of the elements), but not BABALON, who is above the Abyss.
+Ending of time of Jesus of Nazareth.
