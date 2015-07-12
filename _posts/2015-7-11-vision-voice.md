@@ -153,16 +153,16 @@ Breaking the Maidenhead of Nuit—Uniting of Heh and Vau. That Heh final might p
 *This is the symbolic re resentation of THE FALL. For, the Great Goddess who, in the 3=8 Grade was supporting the
 Columns of the Sephiroth, in the sign of the 2=9 Grade, being tempted by the Tree of Knowledge (whose branches indeed tend
 upward into the Seven Lower Sephiroth, but also tend downward anto the Kingdom of Shells) reached down unto the Qlippoth,
-and immediately the Columns were unsupported and the Sephirotic system was shattered, and with it fell ADAM, the MICROPROSOPUS.
+and immediately the Columns were unsupported and the Sephirotic system was shattered, and with it fell ADAM, the MICROPROSOPUS.*
 
-Then arose the Great DRAGON with Seven Heads and Ten Horns, and the Garden was made desolate, and MALKUTH was cut off from the Sephiroth by his intersecting folds, and linked unto the Kingdom of Shells. And the Seven Lower Sephiroth were cut off
-from the Three Supernals in DAATH, at the feet of AIMA ELOHIM.
+*Then arose the Great DRAGON with Seven Heads and Ten Horns, and the Garden was made desolate, and MALKUTH was cut off from the Sephiroth by his intersecting folds, and linked unto the Kingdom of Shells. And the Seven Lower Sephiroth were cut off
+from the Three Supernals in DAATH, at the feet of AIMA ELOHIM.*
 
-And on the Heads of the Dragon are the Names and Crowns of the Edomite Kings. And because in DAATH was the greatest rise of the Great Serpent of Evil, therefore is there, as it were, another Sephirah, making for the Infernal or Averse Sephiroth, Eleven instead of Ten.
+*And on the Heads of the Dragon are the Names and Crowns of the Edomite Kings. And because in DAATH was the greatest rise of the Great Serpent of Evil, therefore is there, as it were, another Sephirah, making for the Infernal or Averse Sephiroth, Eleven instead of Ten.*
 
-And hence were the Rivers of Eden desecrated, and from the Mouth of the DRAGON rushed the Infernal Waters in DAATH. And this is LEVIATHAN, The Crooked Serpent.
+*And hence were the Rivers of Eden desecrated, and from the Mouth of the DRAGON rushed the Infernal Waters in DAATH. And this is LEVIATHAN, The Crooked Serpent.*
 
-But between the Devastated Garden and the Supernal Eden, YOD HE VAU HE ELOHIM placed the Letters of THE NAME and THE
+*But between the Devastated Garden and the Supernal Eden, YOD HE VAU HE ELOHIM placed the Letters of THE NAME and THE
 FLASHING SWORD that the uppermost part of the Tree of Life might not be involved in the Fall of Adam. And thence it was
 necessary that the SECOND ADAM should come to restore all things and that,as the First Adam had been extended on the Cross of
 the Celestial Rivers, so the SON should be crucified on the Cross of the Infernal Rivers of DAATH. Yet, to do this, he must descend unto the lowest first, even unto Malkuth and be born of her.*
