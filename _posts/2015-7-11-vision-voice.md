@@ -249,13 +249,15 @@ Ending of time of Jesus of Nazareth.
 <center>The 29th Aethyr, RII.<br>
 Yesod in Yetzirah.<br>
 "The Disruption of the Aeon of Osiris."<br>
-Pisces, Sagittarius, Sagittarius. [220: AL—this vision occured 3 years earlier.]<br>
+Pisces, Sagittarius, Sagittarius. [220: AL—this vision occured 3 years earlier. Key of 5=6 GD; 22 Trumps x 10 Sephira = Tree, Sword x Snake.]<br>
 Moon / Art / Art.<br><br>
 Comment: The disturbance of Equilibrium caused by the Coming of the Aeon.</center>
 
-Green sky covered with gold stars, dark. The imagery is the four beasts of Daniel and Apocalypse, surrounding the throne of the Elders (seen in Aethyr 30), as in ATU XXI and ATU X Rider-Waite. Also the Kerubs of the Elements, following on from the Pentagram Ritual symbolism in Aethyr 30 (Kerubs are seen in Supreme Pentagram Ritual of GD).
+Green sky covered with gold stars, dark (Venus/Solar). The imagery is the four beasts of Daniel and Apocalypse, surrounding the throne of the Elders (seen in Aethyr 30), as in ATU XXI and ATU X Rider-Waite. Also the Kerubs of the Elements, following on from the Pentagram Ritual symbolism in Aethyr 30 (Kerubs are seen in Supreme Pentagram Ritual of GD).
 
-**East:** Eagle-angel, wings hide heaven (the immediate, scary future). Speech reminiscent of ATU XX in Rider-Waite.
+Scorpio-Taurus: East-West. Leo-Aquarius: South-North. As if Antares, Regulus and Aldebaran were rising, culminating and setting. Scorpio-Taurus=Nun Vav, NU; + Leo=Teth, NUT, Nuit.
+
+**East:** Eagle-angel/Scorpio/Water/Heh/Understanding, wings hide heaven (the immediate, scary future). Speech reminiscent of ATU XX in Rider-Waite. This is the GD attribution but years later Crowley would re-attribute the Eagle to Air instead of Water, leaving Scorpio.
 
 **South:** A lion wounded and perplexed, the Beast 666, Sol in Strength. 
 
