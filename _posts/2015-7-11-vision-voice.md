@@ -153,7 +153,7 @@ Eshelman, James A. *Visions & Voices: Aleister Crowley's Enochian Visions With A
 <center>The 30th Aethyr, TEX.<br>
 Malkuth in Yetzirah.<br>
 "The Exordium of the Equinox of the Gods."<br>
-Caput Draconis / Virgo / Earth.<br>
+Caput Draconis / Virgo / Earth. [417: 418-1]<br>
 Priestess / Hermit / Universe.<br><br>
 Comment: Without the cube—the material world—is the sphere-system of the spiritual world enfolding it. The Cry seems to be a sort of Exordium, an external shewing-forth of the coming of the new Aeon, the Aeon of Horus the crowned child.</center>
 
@@ -243,3 +243,12 @@ AN = 51 (Death now infused with life or breath. Relation to secret word ON of VI
 Until the Book of East is opened, look not above or below...
 YHVH/Tetragrammaton, the blind forces of the elements, bind the Uninitiate, who can reach YHShVH (man, master of the elements), but not BABALON, who is above the Abyss.
 Ending of time of Jesus of Nazareth.
+
+<center><h1><p style="font-family: Enochian Writing">XET</p></h1></center>
+
+<center>The 29th Aethyr, RII.<br>
+Yesod in Yetzirah.<br>
+"The Disruption of the Aeon of Osiris."<br>
+Pisces, Sagittarius, Sagittarius. [220: AL—this vision occured 3 years earlier.]<br>
+Moon / Art / Art.<br><br>
+Comment: The disturbance of Equilibrium caused by the Coming of the Aeon.</center>
