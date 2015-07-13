@@ -255,10 +255,13 @@ Comment: The disturbance of Equilibrium caused by the Coming of the Aeon.</cente
 
 Green sky covered with gold stars, dark. The imagery is the four beasts of Daniel and Apocalypse, surrounding the throne of the Elders (seen in Aethyr 30), as in ATU XXI and ATU X Rider-Waite. Also the Kerubs of the Elements, following on from the Pentagram Ritual symbolism in Aethyr 30 (Kerubs are seen in Supreme Pentagram Ritual of GD).
 
-East: Eagle-angel, wings hide heaven (the immediate, scary future). Speech reminiscent of ATU XX in Rider-Waite.
-South: A lion wounded and perplexed, the Beast 666, Sol in Strength. 
-West: Bull, white with horns of white and black and gold, scarlet mouth, sapphire eyes, cleaving sky with sword, lightning and deep clouds of Indigo. Again the YHVH symbolism. 
-North: Man on Great horse with scourge and balances (Libra/Lamed/Justice), black velvet - Death of Apocalypse (Kalki) (Note: Death/Kalki, as is Horus, is "crowned and conquering" in Revelation).
+**East:** Eagle-angel, wings hide heaven (the immediate, scary future). Speech reminiscent of ATU XX in Rider-Waite.
+
+**South:** A lion wounded and perplexed, the Beast 666, Sol in Strength. 
+
+**West:** Bull, white with horns of white and black and gold, scarlet mouth, sapphire eyes, cleaving sky with sword, lightning and deep clouds of Indigo. Again the YHVH symbolism. 
+
+**North:** Man on Great horse with scourge and balances (Libra/Lamed/Justice), black velvet - Death of Apocalypse (Kalki) (Note: Death/Kalki, as is Horus, is "crowned and conquering" in Revelation).
 
 Current of destiny in the body of Nuit. Everything is changed, and it only looks like chaos (CHAOS = Chokmah and a name of the Beast, see Biroco Kaos 14) but it is the skeleton of a new truth. Light consumed in womb of Binah to create itself anew. LVX/INRI:IAO/TARO passwords (see The Wake World)—LVX cross hidden in cubical Swastika. 65, 231, 21, 78. 18º SR?
 
