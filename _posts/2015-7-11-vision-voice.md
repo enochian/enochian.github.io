@@ -92,7 +92,7 @@ Crowley was now able to penetrate beyond the initial two aethyrs; his progress b
 
 These acts, he wrote, disrupted his personality and undermined his ego totally—he was in a state of psychosis or mania, perhaps. Crowley was now to enter the "City of Pyramids," a landscape informed by the Enochian tablets or rather the Golden Dawn conceit of turning their squares into pyramids, this being the habitation of Masters or non-physical adepts, and given to the task of the Master of the Temple in raising up humanity, in Crowley's case under the planetary aegis of Jupiter or the sphere Chesed. The Queen of the City of Pyramids was now revealed to be BABALON herself, who accepted the blood of the saints here encamped, and to whom they were enjoined to offer their ego totally, under penalty of imperfect initiation and stagnation; similary to Dee and Kelley's account of the "Daughter of Fortitude," BABALON's appearance followed the successful accomplishment of the breaking of sexual taboo.
 
-Now being "abandoned" by his angelic guardian, Crowley was told to call the 10th Aethyr, ZAX, and cross the "Abyss" or separation between God and man, noumenon and phenomenon, the guardian of which was CHORONZON, the "mighty devil" [c] described by Kelley. Crowley was here taking the name "Coronzon" from Casaubon and changing the spelling to Choronzon, potentially so that were the name transliterated into Hebrew, the first letter would be Cheth, "Ch." Crowley's Hebrew transliteration, given in *Sepher Sephiroth*, is ChVRVNZVN, Cheth-Vau-Resh-Vau-Nun-Zayin-Vau-Nun, enumerating to 333 by Gematria.
+Now being "abandoned" by his angelic guardian, Crowley was told to call the 10th Aethyr, ZAX, and cross the "Abyss" or separation between God and man, noumenon and phenomenon, the guardian of which was CHORONZON, the "mighty devil" [c] described by Kelley. Crowley was here taking the name "Coronzon" from Casaubon and changing the spelling to Choronzon, potentially so that were the name transliterated into Hebrew, the first letter would be Cheth, "Ch." Crowley's Hebrew transliteration, given in *Sepher Sephiroth*, is ChVRVNZVN, Cheth-Vau-Resh-Vau-Nun-Zayin-Vau-Nun, enumerating to 333 by Gematria. By Greek gematria, 333 also enumerates to the words for "incontinence, dispersion, debauchery and wantonness"—in Hebrewm it also enumerates to AYQ BKR, the Qabalah of the nine chambers, and ShLG, snow (Eshelman adds HChShN, the darknessm and HShChVTCh, the slaughtered). All of this suggests the dispersion of the mind or, as Eshelman puts it, the "Anti-Will."
 
 However, this spelling is one of several things that Casaubon got wrong; Dee's diaries themselves identify this entity as "Coronzom," and this has been corrected in Stephen Skinner's revision of Casaubon. In Enochian letters, this would be:
 
@@ -102,7 +102,11 @@ However, this spelling is one of several things that Casaubon got wrong; Dee's d
 
 <center><img src="https://upload.wikimedia.org/wikipedia/commons/thumb/6/61/Enochian_alphabet.png/550px-Enochian_alphabet.png"></center>
 
-This demon—representing the final chaos of the mind—was evoked into a triangle using the medium of pigeon blood (three pigeons were sacrificed), in operating procedures taken from the *Göetia* or *Lesser Key of Solomon*—Kelley had been rebuked by the Angels for his prior work with Göetia. Neuberg worked as the operator while Crowley himself stood in the triangle, perhaps hoping Neuberg would "exorcise" the Choronzom complex from him totally. Crowley was possessed, broke the circle and attacked Neuberg; Neuberg banished the demon back to the triangle by vibrating the Qabalistic names of God and striking Crowley with his magical dagger. The demon returned to the triangle where it continued to psychologically attack Neuberg until the "energy" in the spilled pigeon blood was depleted. Crowley wrote the name of BABALON in the sand with his ring, and emerged from his possession trance. The ordeal lasted two hours.
+From Dee's diaries (quoted from Eshelman, not Skinner):
+
+*But Coronzon[sic] (for so is the name of that mighty devil), envying man's felicity, and perceiving that the substance of man's lesser part was frail and unperfect in respect to his purer essence, began to assail man, and so prevailed.*
+
+This demon—representing the final chaos of the mind or the reason/discursive ego itself incorrectly attempting to usurp the throne of God or pure, trans-linguistic, transpersonal spiritual intuition ("knowledge is a false crown [i.e. is not Kether though may appear to be to one who has not overcome their ego]")—was evoked into a triangle using the medium of pigeon blood (three pigeons were sacrificed), in operating procedures taken from the *Göetia* or *Lesser Key of Solomon*—Kelley had been rebuked by the Angels for his prior work with Göetia. Neuberg worked as the operator while Crowley himself stood in the triangle, perhaps hoping Neuberg would "exorcise" the Choronzom complex from him totally. Crowley was possessed, broke the circle and attacked Neuberg; Neuberg banished the demon back to the triangle by vibrating the Qabalistic names of God and striking Crowley with his magical dagger. The demon returned to the triangle where it continued to psychologically attack Neuberg until the "energy" in the spilled pigeon blood was depleted. Crowley wrote the name of BABALON in the sand with his ring, and emerged from his possession trance. The ordeal lasted two hours.
 
 Beyond ZAX, the character of the Aethyrs changed. Crowley notes that the original text of the 19th Call reads, at face value, as curse:
 
@@ -114,7 +118,7 @@ The remaining Aethyrs showed progressive visions of purity and grace, until the 
 
 ##Astrological Factors
 
-Though not calculated or timed by Crowley and Neuberg, James Eshelman later worked to analyze the astrology of each Aethyr calling itself as an attempt to isolate astrological influences on the visions from the actual content of the Aethyrs themselves. This is outside our scope for the present work.
+Though not calculated or timed by Crowley and Neuberg, James Eshelman later worked to analyze the astrology of each Aethyr calling itself as an attempt to isolate astrological influences on the visions from the actual content of the Aethyrs themselves. This is outside our scope for the present work but will be mentioned when appropriate here. Eshelman notes that the sun was in sidereal Scorpio (tropical Sagittarius) between the 28th and 5th Aethyrs, highly relevant to the sexual/destructive qualities of BABALON. 
 
 ##Summary of Method
 
@@ -130,17 +134,28 @@ Here, then, is a summary of the methods used by O.M. and Omnia Vincam:
 
 Methods 1-3 would have formed a powerful separation from anything but the ritual psychotheater generated by methods 4-7; such devices are well known by cults the world over as ways of isolating individuals and removing them from anything but the world view of the cult. While here the cult consisted of only two individuals and the methods self-applied, the techniques are consistent. Within such conditions, and within a shared private universe, Crowley and Neuberg—like Dee and Kelley before them—were able to enter a kind of "virtual reality" generated by their unfettered minds, emerging with one of the most striking literary and religious works, in my opinion, of the 20th century. The prose of *The Vision and the Voice* is the best of Crowley's career, surpassing even the Holy Books; like Kelley's messages from the Angels, it is at once exquisitely sacred and profoundly chilling. Next to Dee and Kelley's own Spirit Diaries, it is the primary document of Enochian magick in practice—while Dee and Kelley received the system, Crowley and Neuberg actually *used* it—or at least used a section of it, namely the 30 Aethyrs, rather than the Holy Table itself (Crowley would use the Tablets in later workings, particularly in combination with the VIIIº OTO or masturbatory sex magick). For this reason, *The Vision and the Voice*, or *Liber 418* as it is technically designated in Crowley's A∴A∴, should be studied alongside Dee and Kelley's work.
 
-Following are analyses of each Aethyr. I will here be referring to the following texts:
+Following are analyses of each Aethyr. 
+
+##Sources and Publication History
+
+I will here be referring to the following texts:
 
 Crowley, Aleister, with Victor B. Neuberg and Mary Desti. *The Vision & The Voice, With Commentary and Other Papers. (The Equinox, Vol. IV, No. II).* York Beach: Weiser, 1998.
 
 Eshelman, James A. *Visions & Voices: Aleister Crowley's Enochian Visions With Astrological & Qabalistic Commentary.* Los Angeles: The College of Thelema, 2011.
 
+*The Vision & The Voice* was originally published, uncommented, as the special supplement to *The Equinox*, Vol. I, No. V, 1911. Two sets of commentary were later added by Crowley, which were published in a 1952 edition of *V&V* by Karl Germer, which was again revised by Israel Regardie in 1972, who mixed his own notes in with Crowley's without distinction. The final version was William Breeze's, used here and noted above. The very original text was handwritten by Victor Neuberg in Algeria.
+
 <center><h1><p style="font-family: Enochian Writing">XET</p></h1></center>
 
-The 30th Aethyr. TEX— "The Exordium of the Equinox of the Gods." Caput Draconis / Virgo / Earth. [Malkuth, Yesod, Hod and Netzach in Malkuth. Also Hod and Netzach on the Tree. I am quite confused by these attributions in Equinox 4.2.]
+<center>The 30th Aethyr, TEX.<br>
+Malkuth in Yetzirah.<br>
+"The Exordium of the Equinox of the Gods."<br>
+Caput Draconis / Virgo / Earth.<br>
+Priestess / Hermit / Universe.<br>
+Comment: Without the cube—the material world—is the sphere-system of the spiritual world enfolding it. The Cry seems to be a sort of Exordium, an external shewing-forth of the coming of the new Aeon, the Aeon of Horus the crowned child.</center>
 
-Comment: Without the cube—the material world—is the sphere-system of the spiritual world enfolding it. The Cry seems to be a sort of Exordium, an external shewing-forth of the coming of the new Aeon, the Aeon of Horus the crowned child.
+[Breeze edition: Malkuth, Yesod, Hod and Netzach in Malkuth. Also Hod and Netzach on the Tree. I am quite confused by these attributions in Equinox 4.2.]
 
 <center><img src="http://en.museicapitolini.org/var/museicivici/storage/images/musei/musei_capitolini/percorsi/percorsi_per_sale/palazzo_nuovo/salone/statua_di_arpocrate/10399-13-ita-IT/statua_di_arpocrate_largew.jpg"></center>
 
