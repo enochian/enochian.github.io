@@ -21,6 +21,8 @@ Crowley, according to his *Confessions*, had read Casaubon before embarking on h
 
 Two mappings of the Aethyrs to the tree are given—one by the Golden Dawn, and another by a second order Golden Dawn schema mentioned in the 9th Aethyr. The first of these, which is elegant enough, is that the Aethyrs map the ten sephiroth as repeated in sequence in the latter 3 of the 4 Qabalistic worlds—Yetzirah, Briah and Atziluth, or the Astral, Causal and Spiritual planes in Theosophical language—skipping Assiah totally, as the Aethyrs are concentric spheres outwith the cube of the physical universe (Malkuth) depicted in the 30th Aethyr. This scheme is:
 
+<center><img src="https://i.imgur.com/jj5SjZj.jpg?1"></center>
+
 30/TEX: Malkuth in Yetzirah<br>
 29/RII: Yesod in "<br>
 28/BAG: Hod in "<br>
@@ -171,8 +173,11 @@ Crowley, from *Book 4*:
 <center>Book to be sealed with seals of Stars Concealed.</center>
 <center><p style="font-family: Enochian Writing">AMBZ</p></center>
 <center>"I AM, the surrounding of the four."</center>
+<center>Nephesch [JAE].</center>
 
 (North: Destruction [aligns with Freemasonry]. - Abrogation of old formula.)
+
+AMBZ = 50 in Hebrew (Nun, Death, Scropio, and 50 Gates of Binah)
 
 Day of Judgement and Opening of Eye of Shiva. (ATU XX or XVI)
 
@@ -188,6 +193,7 @@ All is destroyed and rushes together as one, producing a Triple Triad (333).
 <center>Red Book, Blue Letters, grows to fill whole heaven.</center>
 <center><p style="font-family: Enochian Writing">ABFMA</p></center>
 <center>"It is Written, Thou shalt not tempt the Lord Thy God."</center>
+<center>Ruach. [JAE]</center>
 
 (East: Adepts cleansed of blood and brought to light. - Go to light by giving blood into Cup of Babalon)
 
@@ -196,6 +202,7 @@ Adepts shown in white dropping Blood (Cup of Babalon); above them the Golden Sun
 <center><h3>SOUTH: CLOSING OF OLD AEON</h3><center>
 <center>Book must be sealed and must not be spoken of.</center>
 <center>Vast swastika behind Angel—17 out 25 squares of pentagram; Aleph.</center>
+<center>Neschamah. [JAE}</center>
 
 Blessed Lord, shadow as great light, love...
 Unveiling of Son. 
@@ -223,6 +230,7 @@ the Celestial Rivers, so the SON should be crucified on the Cross of the Inferna
 <center><p style="font-family: Enochian Writing">AN</p></center>
 <center>Within drawn a fiery scorpion, yet cold withal.</center>
 <center>West: Fate (refusing initiation). - Alternative is despair of loneliness.</center>
+<center>Synthesis of sheathes [JAE].</center>
 
 Until the Book of East is opened, look not above or below...
 YHVH/Tetragrammaton, the blind forces of the elements, bind the Uninitiate, who can reach YHShVH (man, master of the elements), but not BABALON, who is above the Abyss.
