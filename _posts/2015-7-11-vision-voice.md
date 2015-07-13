@@ -265,4 +265,4 @@ Green sky covered with gold stars, dark. The imagery is the four beasts of Danie
 
 Current of destiny in the body of Nuit. Everything is changed, and it only looks like chaos (CHAOS = Chokmah and a name of the Beast, see Biroco Kaos 14) but it is the skeleton of a new truth. Light consumed in womb of Binah to create itself anew. LVX/INRI:IAO/TARO passwords (see The Wake World)—LVX cross hidden in cubical Swastika. 65, 231, 21, 78. 18º SR?
 
-Daleth in Egg of white light (Amalantrah Working? "It's all in the egg."
+Daleth in Egg of white light (Amalantrah Working? "It's all in the egg.")
