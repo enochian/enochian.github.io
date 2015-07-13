@@ -259,12 +259,20 @@ Scorpio-Taurus: East-West. Leo-Aquarius: South-North. As if Antares, Regulus and
 
 **East:** Eagle-angel/Scorpio/Water/Heh/Understanding, wings hide heaven (the immediate, scary future). Speech reminiscent of ATU XX in Rider-Waite. This is the GD attribution but years later Crowley would re-attribute the Eagle to Air instead of Water, leaving Scorpio.
 
-**South:** A lion wounded and perplexed, the Beast 666, Sol in Strength. 
+Chesed absorbed in the Abyss.
 
-**West:** Bull, white with horns of white and black and gold, scarlet mouth, sapphire eyes, cleaving sky with sword, lightning and deep clouds of Indigo. Again the YHVH symbolism. 
+**South:** Lion/Leo/Fire/Yod/Wisdom, wounded and perplexed, the Beast 666, Sol in Strength. Wounded masculine of Aeon of Osiris—dying patriarchy?
 
-**North:** Man on Great horse with scourge and balances (Libra/Lamed/Justice), black velvet - Death of Apocalypse (Kalki) (Note: Death/Kalki, as is Horus, is "crowned and conquering" in Revelation).
+**West:** Bull/Taurus/Earth/Heh final, white with horns of white and black and gold, scarlet mouth, sapphire eyes, cleaving sky with sword (air, as Taurus itself is attributed to air), lightning and deep clouds of Indigo. Again the YHVH symbolism. The fall of Christianity/Osiris/Mithras. Work of Yesod/2=9 A.A.
 
-Current of destiny in the body of Nuit. Everything is changed, and it only looks like chaos (CHAOS = Chokmah and a name of the Beast, see Biroco Kaos 14) but it is the skeleton of a new truth. Light consumed in womb of Binah to create itself anew. LVX/INRI:IAO/TARO passwords (see The Wake World)—LVX cross hidden in cubical Swastika. 65, 231, 21, 78. 18º SR?
+**North:** Man/Libra [instead of Aquarius]/Saturn on Great horse with scourge and balances (Libra/Lamed/Justice), black velvet - similar to Death of Apocalypse (Kalki) (Note: Death/Kalki, as is Horus, is "crowned and conquering" in Revelation). Gaze into unconscious to see superconsciousness.
+
+Air as herald of Aquarius/Current of destiny in the body of Nuit. Everything is changed, and it only looks like chaos (CHAOS = Chokmah and a name of the Beast, see Biroco Kaos 14) but it is the skeleton of a new truth. Light consumed in womb of Binah to create itself anew. LVX/INRI:IAO/TARO passwords (see The Wake World)—LVX cross hidden in cubical Swastika. 65, 231, 21, 78. 18º SR?
+
+Glory to the most high god. In Enochian, this is:
+
+<center><h3><p style="font-family: Enochian Writing">ADIAI</p></h3></center>
+
+Which transliterated in Hebrew is 26, the same as YHVH, the Tetragrammation which is here shown rearranging in this and the previous Aethyr.
 
 Daleth in Egg of white light (Amalantrah Working? "It's all in the egg.")
