@@ -65,7 +65,7 @@ However, this spelling is one of several things that Casaubon got wrong; Dee's d
 
 [**NOTE:** This Enochian web font, designed in 1996, is inaccurate. It uses the same character (Don) for Don (R) and Tal (M), a common beginner mistake; they are different characters. See the Enochian alphabet below. This means the final Tal or M is not correct, this would unfortunately have to be done by hand. Then again, maybe it's best not to put a demon's name online.]
 
-<p style="font-family: 'GFS Neohellenic', sans-serif;">GREEK</p>
+<p style="font-family: GFS Neohellenic">GREEK</p>
 
 <center><img src="https://upload.wikimedia.org/wikipedia/commons/thumb/6/61/Enochian_alphabet.png/550px-Enochian_alphabet.png"></center>
 
