@@ -21,36 +21,36 @@ Crowley, according to his *Confessions*, had read Casaubon before embarking on h
 
 Two mappings of the Aethyrs to the tree are given—one by the Golden Dawn, and another by a second order Golden Dawn schema mentioned in the 9th Aethyr. The first of these, which is elegant enough, is that the Aethyrs map the ten sephiroth as repeated in sequence in the latter 3 of the 4 Qabalistic worlds—Yetzirah, Briah and Atziluth, or the Astral, Causal and Spiritual planes in Theosophical language—skipping Assiah totally, as the Aethyrs are outwith the "cubical sphere" of the physical universe depicted in the 30th Aethyr. This scheme is:
 
-30/TEX: Malkuth in Yetzirah
-29/RII: Yesod in "
-28/BAG: Hod in "
-27/ZAA: Netzach in "
-26/DES: Tiphareth in "
-25/VTI: Geburah in "
-24/NIA: Chesed in "
-23/TOR: Binah in "
-22/LIN: Chokmah in "
-21/ASP: Kether in "
-20/KHR: Malkuth in Briah
-19/POP: Yesod in "
-18/ZEN: Hod in "
-17/TAN: Netzach in "
-16/LEA: Tiphereth in "
-15/OXO: Geburah in "
-14/UTA: Chesed in "
-13/ZIM: Binah in "
-12/LOE: Chokmah in "
-11/IKH: Kether in "
-10/ZAX: Malkuth in Atziluth(!)
-9/ZIP: Yesod in "
-8/ZID: Hod in "
-7/DEO: Netzach in "
-6/MAZ: Tiphareth in "
-5/LIT: Geburah in "
-4/PAZ: Chesed in "
-3/ZOM: Binah in "
-2/ARN: Chokmah in "
-1/LIL: Kether in Atziluth.
+30/TEX: Malkuth in Yetzirah<br>
+29/RII: Yesod in "<br>
+28/BAG: Hod in "<br>
+27/ZAA: Netzach in "<br>
+26/DES: Tiphareth in "<br>
+25/VTI: Geburah in "<br>
+24/NIA: Chesed in "<br>
+23/TOR: Binah in "<br>
+22/LIN: Chokmah in "<br>
+21/ASP: Kether in "<br>
+20/KHR: Malkuth in Briah<br>
+19/POP: Yesod in "<br>
+18/ZEN: Hod in "<br>
+17/TAN: Netzach in "<br>
+16/LEA: Tiphereth in "<br>
+15/OXO: Geburah in "<br>
+14/UTA: Chesed in "<br>
+13/ZIM: Binah in "<br>
+12/LOE: Chokmah in "<br>
+11/IKH: Kether in "<br>
+10/ZAX: Malkuth in Atziluth(!)<br>
+9/ZIP: Yesod in "<br>
+8/ZID: Hod in "<br>
+7/DEO: Netzach in "<br>
+6/MAZ: Tiphareth in "<br>
+5/LIT: Geburah in "<br>
+4/PAZ: Chesed in "<br>
+3/ZOM: Binah in "<br>
+2/ARN: Chokmah in "<br>
+1/LIL: Kether in Atziluth.<br>
 
 ##Operating Procedures
 
