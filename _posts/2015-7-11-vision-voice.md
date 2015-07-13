@@ -17,7 +17,40 @@ Crowley, according to his *Confessions*, had read Casaubon before embarking on h
 ##The Aethyrs
 <center><img src="http://img44.xooimage.com/files/d/7/0/roue_aethyrs-d1e1f7.jpg"></center>
 
-30 consecutive Aethyrs are outlined by Kelley—they are either "dominion extending in ever widening circles without and beyond the Watchtowers of the Universe," the infinite cube formed by the four tables; or aires simply means "climes" and they pertain to different parts of the world.
+30 consecutive Aethyrs are outlined by Kelley—as given to Dee and Kelley on July 13, 1584 by the angels Ile and Gabriel (the latter being the same angel that disclosed the Qu'ran to the prophet Mohammed). These aethyrs are either "dominion extending in ever widening circles without and beyond the Watchtowers of the Universe," the infinite cube formed by the four tables; or aires simply means "climes" and they pertain to different parts of the world. Either they are spiritual landscapes, terrestrial locations or, somehow, both; Crowley and Neuberg used them as the former and not the latter.
+
+Two mappings of the Aethyrs to the tree are given—one by the Golden Dawn, and another by a second order Golden Dawn schema mentioned in the 9th Aethyr. The first of these, which is elegant enough, is that the Aethyrs map the ten sephiroth as repeated in sequence in the latter 3 of the 4 Qabalistic worlds—Yetzirah, Briah and Atziluth, or the Astral, Causal and Spiritual planes in Theosophical language—skipping Assiah totally, as the Aethyrs are outwith the "cubical sphere" of the physical universe depicted in the 30th Aethyr. This scheme is:
+
+30/TEX: Malkuth in Yetzirah
+29/RII: Yesod in "
+28/BAG: Hod in "
+27/ZAA: Netzach in "
+26/DES: Tiphareth in "
+25/VTI: Geburah in "
+24/NIA: Chesed in "
+23/TOR: Binah in "
+22/LIN: Chokmah in "
+21/ASP: Kether in "
+20/KHR: Malkuth in Briah
+19/POP: Yesod in "
+18/ZEN: Hod in "
+17/TAN: Netzach in "
+16/LEA: Tiphereth in "
+15/OXO: Geburah in "
+14/UTA: Chesed in "
+13/ZIM: Binah in "
+12/LOE: Chokmah in "
+11/IKH: Kether in "
+10/ZAX: Malkuth in Atziluth(!)
+9/ZIP: Yesod in "
+8/ZID: Hod in "
+7/DEO: Netzach in "
+6/MAZ: Tiphareth in "
+5/LIT: Geburah in "
+4/PAZ: Chesed in "
+3/ZOM: Binah in "
+2/ARN: Chokmah in "
+1/LIL: Kether in Atziluth.
 
 ##Operating Procedures
 
@@ -64,8 +97,6 @@ However, this spelling is one of several things that Casaubon got wrong; Dee's d
 <center><h2><p style="font-family: Enochian Writing">MOZNOROC</p></h2></center>
 
 [**NOTE:** This Enochian web font, designed in 1996, is inaccurate. It uses the same character (Don) for Don (R) and Tal (M), a common beginner mistake; they are different characters. See the Enochian alphabet below. This means the final Tal or M is not correct, this would unfortunately have to be done by hand. Then again, maybe it's best not to put a demon's name online.]
-
-<p style="font-family: GFS Neohellenic">GREEK</p>
 
 <center><img src="https://upload.wikimedia.org/wikipedia/commons/thumb/6/61/Enochian_alphabet.png/550px-Enochian_alphabet.png"></center>
 
