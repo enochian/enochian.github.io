@@ -159,6 +159,8 @@ Comment: Without the cube—the material world—is the sphere-system of the spi
 
 [Breeze edition: Malkuth, Yesod, Hod and Netzach in Malkuth. Also Hod and Netzach on the Tree. I am quite confused by these attributions in Equinox 4.2.]
 
+Suggests incoming of Aeon of Horus; 18º Rose-Croix degree of Scottish Rite. Also the imagery is consistent with the path of Tav (Saturn) leading from Malkuth.
+
 <center><img src="http://en.museicapitolini.org/var/museicivici/storage/images/musei/musei_capitolini/percorsi/percorsi_per_sale/palazzo_nuovo/salone/statua_di_arpocrate/10399-13-ita-IT/statua_di_arpocrate_largew.jpg"></center>
 
 Crystal cube in form of Harpocrates (Malkuth) surrounded by sphere (Aethyrs)—"I am the Magician and the Exorcist. I am the axle of the wheel, and the cube in the circle. 'Come unto me' is a foolish word: for it is I that go'"—surrounded by four archangels. Suggests Pentagram ritual. Harpocrates is the center of the 4 archangels—"(This is of the 4: there is a fifth who is invisible, & therein am I as a babe in an egg.)"
@@ -195,13 +197,17 @@ All is destroyed and rushes together as one, producing a Triple Triad (333).
 <center>"It is Written, Thou shalt not tempt the Lord Thy God."</center>
 <center>Ruach. [JAE]</center>
 
+ABFMA also = 50, Nun, Scorpio.
+
 (East: Adepts cleansed of blood and brought to light. - Go to light by giving blood into Cup of Babalon)
 
-Adepts shown in white dropping Blood (Cup of Babalon); above them the Golden Sun with an Eye, whence a great light—Kether/Horus.
+Adepts shown in white dropping Blood (Cup of Babalon); above them the Golden Sun with an Eye, whence a great light—Kether/Horus. White as being bloodless AND pure.
+
+Revelation 4:4 "And round about the throne were four and twenty seats: and upon the seats I saw four and twenty elders sitting, clothed in white raiment; and they had on their heads crowns of gold."
 
 <center><h3>SOUTH: CLOSING OF OLD AEON</h3><center>
 <center>Book must be sealed and must not be spoken of.</center>
-<center>Vast swastika behind Angel—17 out 25 squares of pentagram; Aleph.</center>
+<center>Vast swastika behind Angel—17 out 25 squares of pentagram; Aleph—a symbol of Kether as well as GD initiation badge to 1=10.</center>
 <center>Neschamah. [JAE}</center>
 
 Blessed Lord, shadow as great light, love...
@@ -231,6 +237,8 @@ the Celestial Rivers, so the SON should be crucified on the Cross of the Inferna
 <center>Within drawn a fiery scorpion, yet cold withal.</center>
 <center>West: Fate (refusing initiation). - Alternative is despair of loneliness.</center>
 <center>Synthesis of sheathes [JAE].</center>
+
+AN = 51 (Death now infused with life or breath. Relation to secret word ON of VIº O.T.O.)
 
 Until the Book of East is opened, look not above or below...
 YHVH/Tetragrammaton, the blind forces of the elements, bind the Uninitiate, who can reach YHShVH (man, master of the elements), but not BABALON, who is above the Abyss.
