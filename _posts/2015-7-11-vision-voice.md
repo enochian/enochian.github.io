@@ -17,9 +17,9 @@ Crowley, according to his *Confessions*, had read Casaubon before embarking on h
 ##The Aethyrs
 <center><img src="http://img44.xooimage.com/files/d/7/0/roue_aethyrs-d1e1f7.jpg"></center>
 
-30 consecutive Aethyrs are outlined by Kelley—as given to Dee and Kelley on July 13, 1584 by the angels Ile and Gabriel (the latter being the same angel that disclosed the Qu'ran to the prophet Mohammed). These aethyrs are either "dominion extending in ever widening circles without and beyond the Watchtowers of the Universe," the infinite cube formed by the four tables; or aires simply means "climes" and they pertain to different parts of the world. Either they are spiritual landscapes, terrestrial locations or, somehow, both; Crowley and Neuberg used them as the former and not the latter.
+30 consecutive Aethyrs are outlined by Kelley—as given to Dee and Kelley on July 13, 1584 by the angels Ile and Gabriel (the latter being the same angel that disclosed the Qu'ran to the prophet Mohammed). These aethyrs are either "dominion extending in ever widening circles without and beyond the Watchtowers of the Universe," the cube of the Universe formed by the four tables; or aires simply means "climes" and they pertain to different parts of the world. Either they are spiritual landscapes, terrestrial locations or, somehow, both; Crowley and Neuberg used them as the former and not the latter.
 
-Two mappings of the Aethyrs to the tree are given—one by the Golden Dawn, and another by a second order Golden Dawn schema mentioned in the 9th Aethyr. The first of these, which is elegant enough, is that the Aethyrs map the ten sephiroth as repeated in sequence in the latter 3 of the 4 Qabalistic worlds—Yetzirah, Briah and Atziluth, or the Astral, Causal and Spiritual planes in Theosophical language—skipping Assiah totally, as the Aethyrs are outwith the "cubical sphere" of the physical universe depicted in the 30th Aethyr. This scheme is:
+Two mappings of the Aethyrs to the tree are given—one by the Golden Dawn, and another by a second order Golden Dawn schema mentioned in the 9th Aethyr. The first of these, which is elegant enough, is that the Aethyrs map the ten sephiroth as repeated in sequence in the latter 3 of the 4 Qabalistic worlds—Yetzirah, Briah and Atziluth, or the Astral, Causal and Spiritual planes in Theosophical language—skipping Assiah totally, as the Aethyrs are concentric spheres outwith the cube of the physical universe (Malkuth) depicted in the 30th Aethyr. This scheme is:
 
 30/TEX: Malkuth in Yetzirah<br>
 29/RII: Yesod in "<br>
@@ -152,19 +152,20 @@ Eshelman, James A. *Visions & Voices: Aleister Crowley's Enochian Visions With A
 Malkuth in Yetzirah.<br>
 "The Exordium of the Equinox of the Gods."<br>
 Caput Draconis / Virgo / Earth.<br>
-Priestess / Hermit / Universe.<br>
+Priestess / Hermit / Universe.<br><br>
 Comment: Without the cube—the material world—is the sphere-system of the spiritual world enfolding it. The Cry seems to be a sort of Exordium, an external shewing-forth of the coming of the new Aeon, the Aeon of Horus the crowned child.</center>
 
 [Breeze edition: Malkuth, Yesod, Hod and Netzach in Malkuth. Also Hod and Netzach on the Tree. I am quite confused by these attributions in Equinox 4.2.]
 
 <center><img src="http://en.museicapitolini.org/var/museicivici/storage/images/musei/musei_capitolini/percorsi/percorsi_per_sale/palazzo_nuovo/salone/statua_di_arpocrate/10399-13-ita-IT/statua_di_arpocrate_largew.jpg"></center>
 
-Crystal cube in form of Harpocrates, surrounded by sphere—"I am the Magician and the Exorcist. I am the axle of the wheel, and the cube in the circle. 'Come unto me' is a foolish word: for it is I that go'"—surrounded by four archangels. Suggests Pentagram ritual.
+Crystal cube in form of Harpocrates (Malkuth) surrounded by sphere (Aethyrs)—"I am the Magician and the Exorcist. I am the axle of the wheel, and the cube in the circle. 'Come unto me' is a foolish word: for it is I that go'"—surrounded by four archangels. Suggests Pentagram ritual. Harpocrates is the center of the 4 archangels—"(This is of the 4: there is a fifth who is invisible, & therein am I as a babe in an egg.)"
 
 New Aeon comes in at Four Quarters, in each of which an Archangel holds a book labelled back and front in Enochian. [Note: The M's are fucked in the font.] The Archangels are in black robes, their wings and armor lined out in white. All this symbolism seems to elaborate the Pentagram Ritual. Tetragrammaton imagery is found throughout.
 
 Crowley, from *Book 4*:
 
+*The formation of the "Yod" is the formulation of the first creative force, of that father who is called "self-begotten", and unto whom it is said: "Thou has formulated thy Father, and made fertile thy Mother". The adding of the "He" to the "Yod" is the marriage of that Father to the great co-equal Mother, who is a reflection of Nuit as He is of Hadit. Their union brings forth the son "Vau" who is the heir. Finally the daughter "He" is produced. She is both the twin sister and the daughter of "Vau". His mission is to redeem her by making her his bride; the result of this is to set her upon the throne of her mother, and it is only she whose youthful embrace can reawaken the eld of the All-Father. In this complex family relationship is symbolised the whole course of the Universe. It will be seen that (after all) the Climax is at the end. It is the second half of the formula which symbolises the Great Work which we are pledged to accomplish. The first step of this is the attainment of the Knowledge and Conversation of the Holy Guardian Angel, which constitutes the Adept of the Inner Order. The re-entry of these twin spouses into the womb of the mother is that initiation described in Liber 418, which gives admission to the Inmost Order of the A∴ A∴ Of the last step we cannot speak.*
 
 <center><h3>NORTH: FORTHSAYING OF NEW AEON</h3></center>
 <center>Book to be sealed with seals of Stars Concealed.</center>
