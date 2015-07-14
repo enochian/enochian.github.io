@@ -288,14 +288,25 @@ Comment: Now is a further and clearer shadowing-forth of the Great Mystery of th
 
 BAG= 19, Eve, manifest, show forth.
 
-An invocation of Binah and foreshadowing of the Abyss/ZAX.
+An invocation of Binah, of the wheel of Time, and foreshadowing of the Abyss/ZAX.
 
-An angel in a sapphire stone suggesting Tiphareth and Path Samekh, with eyes suggesting Binah (the Angel and the Abyss), warding Binah. If you come here you must be scarred with sorrow (become 8=3). Unification of opposing sephira. 
+An angel (Hod/Aries) in a sapphire stone suggesting Tiphareth and Path Samekh, with eyes suggesting Binah (the Angel and the Abyss), warding Binah. The end of the illusion of Time. If you come here you must be scarred with sorrow (become 8=3). Unification of opposing sephira—Sun/Moon, Mars/Venus, Saturn/Jupiter. [The entire V&V is Crowley's initiation to Binah.]
 
-The four Watch-Towers of the Elements are *within* Binah. Crossed arms of Osiris at Tiphareth before destruction as salt (8=3). 8=3 may make a new Qabalah, but intellectual manipulations are useless for crossing Abyss. 
+The four Watch-Towers of the Elements are *within* Chesed/Jupiter as symbolized by Sapphire (four/Jupiter/stability of universe). Crossed arms of Osiris at Tiphareth before destruction as salt (8=3). 8=3 may make a new Qabalah, but intellectual manipulations are useless for crossing Abyss. 
+
+Enochian writing:
+
+<center><h3><p style="font-family: Enochian Writing">XAPASROCULEV AHAG AN ARBA OV ANALAHAG LAHAG AHAG HAG ERIP ABRA RESATNEXE ADERIP NO ADERIDOZ ALEROHAM NEDURIV OHALO</p></h3></center>
+
+Which is suggested to be part lunar language. Laycock's translation for Regardie:
+
+"For the second time I have beautified those dark Heavens I inhabit! builded there for the Holy Mother of all. The shrine of the spirits existed, exists, and shall exist, wherein it is provided that the Babe of the Abyss [is] enthroned."
 
 Name of warden, by a cipher, is:
 
-<center><h3><p style="font-family: Enochian Writing">PSPIXIL</p></h3></center>
+<center><h3><p style="font-family: Enochian Writing">LSPIXIL</p></h3></center>
 
-k
+Originally calculated as Draco Magnus or Mighty Dragon, Nuit/Binah. Breeze notes this should be 552, "Desiderium dierum," 
+"Longing for the days." Angel says that it is above the three angels of this Aethyr, but that there are four angels in the 30th Aethyr who have none above them (therefore breaking up into the dispersion of Coronzom).
+
+"Face of mother is scarred by nails of devil" = Vau Vau Vau, 666? The number of mankind and also Sol, Tiphareth, below Binah. The seer descends to Tiphareth (Rose Cross) as Binah dissipates.
