@@ -5,7 +5,7 @@ published: true
 ---
 
 Assessing Aleister Crowley (Frater O.M.) and Victor Neuberg's (Frater Omnia Vincam) work with the 30 Aethyrs in 1909, Algeria, from November 23 to December 19 of that year. This working elucidated and developed the Book of the Law (1904) and Thelemic Holy Books (1907), particularly *Liber VII*, and firmly established the Thelemic cosmology that would later inform the O.T.O. and Gnostic Mass. Two years later, the recieved book *Liber Cheth* further developed the iconography of BABALON:
-<center><h3><p style="font-family: Enochian Writing">NOLABAB</p></h3></center>
+<center><h3><p style="font-family: Enochian Writing">BABALON</p></h3></center>
 The Scarlet Woman, who also figures centrally in Revelation, appeared to Dee and Kelley after the wife-swapping incident that ended their partnership, and  appeared to Crowley for the first time in the Algerian sessions. BABALON is not a part of the Golden Dawn Enochian material that Crowley drew on for these sessions, although he may well have read of the Dee and Kelley apparition in the Sloane folios in the British Library(?); Revelation, of course, formed the core of Crowley's psychology as the Bible was his sole reading material during his adolescence in the Plymouth Bretheren, leading him to identify totally with the Beast, the consort of BABALON in Revelation. Crowley thereafter formulated BABALON as the center of his sex-magical or Tantric system, overlaying the Beast/BABALON mythos to the technical sexual magick afforded him only later, in June 1912, upon his admission to the IXº O.T.O. by Theodor Reuss.
 
 <center><img src="https://iamyouasheisme.files.wordpress.com/2009/12/whore-of-babylon.jpg"></center>
@@ -98,7 +98,7 @@ Now being "abandoned" by his angelic guardian, Crowley was told to call the 10th
 
 However, this spelling is one of several things that Casaubon got wrong; Dee's diaries themselves identify this entity as "Coronzom," and this has been corrected in Stephen Skinner's revision of Casaubon. In Enochian letters, this would be:
 
-<center><h2><p style="font-family: Enochian Writing">MOZNOROC</p></h2></center>
+<center><h2><p style="font-family: Enochian Writing">CORONZOM</p></h2></center>
 
 [**NOTE:** This Enochian web font, designed in 1996, is inaccurate. It uses the same character (Don) for Don (R) and Tal (M), a common beginner mistake; they are different characters. See the Enochian alphabet below. This means the final Tal or M is not correct, this would unfortunately have to be done by hand. Then again, maybe it's best not to put a demon's name online.]
 
@@ -148,7 +148,7 @@ Eshelman, James A. *Visions & Voices: Aleister Crowley's Enochian Visions With A
 
 *The Vision & The Voice* was originally published, uncommented, as the special supplement to *The Equinox*, Vol. I, No. V, 1911. Two sets of commentary were later added by Crowley, which were published in a 1952 edition of *V&V* by Karl Germer, which was again revised by Israel Regardie in 1972, who mixed his own notes in with Crowley's without distinction. The final version was William Breeze's, used here and noted above. The very original text was handwritten by Victor Neuberg in Algeria.
 
-<center><h1><p style="font-family: Enochian Writing">XET</p></h1></center>
+<center><h1><p style="font-family: Enochian Writing">TEX</p></h1></center>
 
 <center>The 30th Aethyr, TEX.<br>
 Malkuth in Yetzirah.<br>
@@ -244,7 +244,7 @@ Until the Book of East is opened, look not above or below...
 YHVH/Tetragrammaton, the blind forces of the elements, bind the Uninitiate, who can reach YHShVH (man, master of the elements), but not BABALON, who is above the Abyss.
 Ending of time of Jesus of Nazareth.
 
-<center><h1><p style="font-family: Enochian Writing">IIR</p></h1></center>
+<center><h1><p style="font-family: Enochian Writing">RII</p></h1></center>
 
 <center>The 29th Aethyr, RII.<br>
 Yesod in Yetzirah.<br>
@@ -271,13 +271,13 @@ Air as herald of Aquarius/Current of destiny in the body of Nuit. Everything is 
 
 Glory to the most high god. In Enochian, this is:
 
-<center><h3><p style="font-family: Enochian Writing">ADIAI</p></h3></center>
+<center><h3><p style="font-family: Enochian Writing">IAIDA</p></h3></center>
 
 Which transliterated in Hebrew is 26, the same as YHVH, the Tetragrammation which is here shown rearranging in this and the previous Aethyr.
 
 Daleth in Egg of white light (Amalantrah Working? "It's all in the egg.")
 
-<center><h1><p style="font-family: Enochian Writing">GAB</p></h1></center>
+<center><h1><p style="font-family: Enochian Writing">BAG</p></h1></center>
 
 <center>The 28th Aethyr, BAG.<br>
 Hod in Yetzirah.<br>
@@ -296,7 +296,7 @@ The four Watch-Towers of the Elements are *within* Chesed/Jupiter as symbolized 
 
 Enochian writing:
 
-<center><h3><p style="font-family: Enochian Writing">XAPASROCULEV AHAG AN ARBA OV ANALAHAG LAHAG AHAG HAG ERIP ABRA RESATNEXE ADERIP NO ADERIDOZ ALEROHAM NEDURIV OHALO</p></h3></center>
+<center><h3><p style="font-family: Enochian Writing">OLAHO VIRUDEN MAHORELA ZODIREDA! ON PIREDA EXENTASER; ARBA PIRE GAH GAHA GAHAL GAHALANA VO ABRA NA GAHA VELUCORSAPAX.</p></h3></center>
 
 Which is suggested to be part lunar language. Laycock's translation for Regardie:
 
@@ -304,7 +304,7 @@ Which is suggested to be part lunar language. Laycock's translation for Regardie
 
 Name of warden, by a cipher, is:
 
-<center><h3><p style="font-family: Enochian Writing">LSPIXIL</p></h3></center>
+<center><h3><p style="font-family: Enochian Writing">LIXIPSL</p></h3></center>
 
 Originally calculated as Draco Magnus or Mighty Dragon, Nuit/Binah. Breeze notes this should be 552, "Desiderium dierum," 
 "Longing for the days." Eshelman gives 491 by Hebrew and 620 by Enochian; he suggests the angel was trolling him by making him dwell on exactly the kind of intellectual bs he had just warned against. Angel says that it is above the three angels of this Aethyr, but that there are four angels in the 30th Aethyr who have none above them (therefore breaking up into the dispersion of Coronzom).
@@ -315,7 +315,7 @@ Core message of Aethyr BAG, which corresponds directly to 3=8 Practicus grade, i
 
 Passwords of all grades (55 + 45 + 36 + 28 + 21 + 15 + 10) = 210 = NOX, the Word of the Abyss.
 
-<center><h1><p style="font-family: Enochian Writing">AAZ</p></h1></center>
+<center><h1><p style="font-family: Enochian Writing">ZAA</p></h1></center>
 
 <center>The 27th Aethyr, ZAA.<br>
 Netzach in Yetzirah.<br>
@@ -356,7 +356,7 @@ TUTULU: VII 7:6: "We know why all is hidden in the stone, within the coffin, wit
 
 Unconnected imagery at beginning and end of visions: Ambient Yetziratic patterning due to astrological conditions (Eshelman's view).
 
-<center><h1><p style="font-family: Enochian Writing">SED</p></h1></center>
+<center><h1><p style="font-family: Enochian Writing">DES</p></h1></center>
 
 <center>The 26th Aethyr, DES.<br>
 Tiphareth in Yetzirah.<br>
@@ -393,7 +393,7 @@ Jesus emerges from corruption of four elements and cries out for the supernal NO
 
 Commonality of repetition of "woe, woe, woe, woe" etc. in Enochian text. [Perhaps this = Sorrow, Binah, BABALON.] Woe in Enochian is OHIO:
 
-<center><h3><p style="font-family: Enochian Writing">OIHO</p></h3></center>
+<center><h3><p style="font-family: Enochian Writing">OHIO</p></h3></center>
 
 The intellect itself, devoid of Supernal inspiration, is dragged forth and cursed. Jehovah as accursed duality. (The accursed Dyad.) Masonic-style curses on the four elements *in the order* that they fall into in the Elemental Tablets. [I.e. slaves shall serve: Worship the world of appearances/Maya and be fucked by it.] Demiurge equated with Ego.
 
@@ -405,3 +405,71 @@ Blood driven down by gods: Nuit, Hadit, Ra-Hoor-Khuit, Stele, and below is Seb/G
 
 <center><img src="http://www.taroscopes.com/miscimages/aeon.jpg"></center>
 
+
+<center><h1><p style="font-family: Enochian Writing">VTI</p></h1></center>
+
+<center>The 25th Aethyr, VTI.<br>
+Geburah in Yetzirah.<br>
+"The path of Teth. (Atu XI. The Fire-Kerub in the Initiation.) The Vision of the Fruit of the Great Work of The Beast 666. The Lion."<br>
+Capricorn/Caput Draconis/Sagittarius.<br>
+Devil/Priestess/Art.<br><br>
+Comment: Appearance of the Lion God of Horus, the child of Leo that incarnates him. The first Angel is Isis its mother.</center>
+
+Caput Draconis is head of lion-serpent/Beast 666 (see Enochian Alphabet) [sperm as blood of new Aeon], born of Set/Pan and woman clothed with sun—see Casaubon and Revelation [is the woman clothed with the sun BABALON?] Rev 12:1 "A great sign appeared in heaven: a woman clothed with the sun, with the moon under her feet and a crown of twelve stars on her head." Atus of Lust + The Aeon give key of New Aeon. (XI+XX=XXXI, Achad's Key.) Stone of Gemini/twins (RHK/HPK). An angel bearing a pitcher/amphora (cup/ATU XVII?) that is Avatar of Babalon. Accompanied by angels of Death (Kalki) and Jehovah/Jesus—these are swallowed up by the lion Beast 666. This lion's mouth is closed by Babalon (Strength). Arrayed with angels with silver spears (Crowley says in later commentary to Liber LXV that angels with spears, weaponry, trumpets, lightning, etc are positive symbols/of HGA rather than the decay and dispersion attendant upon evil genius). Stars burnt up in nostrils (Pranayama). Paraphrase of Bornless One—let all these spirits be as motes dancing in a beam of my eye. 
+
+Swallowing Scorpio and Netzach (wouldn't that be Tiphareth? Yes, Lion is a solar/Tiphareth symbol). Also slain Capricornus and drunk up sea (Cap/Hod). [So lion in Tiphareth crowns the Man's attainment—Crowley's various early notes on all symbols of Adonai being subsumed into that of a Lion, the Beast 666—but it is silenced/ridden by Babalon in Teth.] 419 rays in crown, snake body, [<-- Leo imagery] soul of Crowned Child. 419-418=1; 667[Scarlet Woman]-666=1. 
+
+"In his hand is a spear that is a cup of fornication" = IXº OTO (kept secret here). On mouth is seal of 156. Secret of vvvvv—VVVVV has 10 horns that spring from 5 points (= **The Pentagram, VVVVV**) and 8 heads. 
+
+From *Liber 333, Cap. 49*:
+
+49
+
+ΚΕΦΑΛΗ ΜΘ
+
+WARATAH-BLOSSOMS
+
+Seven are the veils of the dancing-girl in the harem of IT.
+Seven are the names, and seven are the lamps beside Her bed.
+Seven eunuchs guard Her with drawn swords; No Man may come nigh unto Her.
+In Her wine-cup are seven streams of the blood of the Seven Spirits of God.
+Seven are the heads of THE BEAST whereon She rideth.
+The head of an Angel: the head of a Saint: the head of a Poet: the head of An Adulterous Woman: the head of a Man of Valour: the head of a Satyr: and the head of a Lion-Serpent.
+Seven letters hath Her holiest name; and it is
+
+<center><img src="http://hermetic.com/crowley/libers/lib333-babalon.gif"></center>
+
+This is the Seal upon the Ring that is on the Forefinger of IT: and it is the Seal upon the Tombs of them whom She hath slain.
+Here is Wisdom. Let Him that hath Understanding count the Number of Our Lady; for it is the Number of a Woman; and Her Number is
+An Hundred and Fifty and Six.
+ 
+
+108
+
+ 
+
+COMMENTARY (ΜΘ)
+
+49 is the square of 7.
+
+7 is the passive and feminine number.
+
+The chapter should be read in connection with Chapter 31 for IT now reappears.
+
+The chapter heading, the Waratah, is a voluptuous scarlet flower, common in Australia, and this connects the chapter with Chapters 28 and 29; but this is only an allusion, for the subject of the chapter is OUR LADY BABALON, who is conceived as the feminine counterpart of IT.
+
+This does not agree very well with the common or orthodox theogony of Chapter 11; but it is to be explained by the dithyrambic nature of the chapter.
+
+In paragraph 3 NO MAN is of course NEMO, the Master of the Temple, Liber 418 will explain most of the allusions in this chapter.
+
+In paragraphs 5 and 6 the author frankly identifies himself with the BEAST referred to in the book, and in the Apocalypse, and in LIBER LEGIS. In paragraph 6 the word “angel” may refer to his mission, and the word “lion-serpent” to the sigil of his ascending decan. (Teth = Snake = spermatozoon and Leo in the Zodiac, which like Teth itself has the snake-form. θ first written ☉ = Lingam-Yoni and Sol.)
+
+Paragraph 7 explains the theological difficulty referred to above. There is only one symbol, but this symbol has many names: of those names BABALON is the holiest. It is the name referred to in Liber Legis, 1, 22.
+
+It will be noticed that the figure, or sigil, of BABALON is a seal upon a ring, and this ring is upon the forefinger of IT. This identifies further the symbol with itself.
+
+It will be noticed that this seal, except for the absence of a border, is the official seal of the A∴A∴ Compare Chapter 3.
+
+It is also said to be the seal upon the tombs of them that she hath slain, that is, of the Masters of the Temple.
+
+In connection with the number 49, see Liber 418, the 22nd Aethyr, as well as the usual authorities.
