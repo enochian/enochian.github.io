@@ -436,7 +436,7 @@ Seven are the names, and seven are the lamps beside Her bed.
 Seven eunuchs guard Her with drawn swords; No Man may come nigh unto Her.
 In Her wine-cup are seven streams of the blood of the Seven Spirits of God.
 Seven are the heads of THE BEAST whereon She rideth.
-The head of an Angel: the head of a Saint: the head of a Poet: the head of An Adulterous Woman: the head of a Man of Valour: the head of a Satyr: and the head of a Lion-Serpent.
+**The head of an Angel: the head of a Saint: the head of a Poet: the head of An Adulterous Woman: the head of a Man of Valour: the head of a Satyr: and the head of a Lion-Serpent.** [BUT IN THE AETHYR HE NOTES that there is an 8th head too terrible to mention.]
 Seven letters hath Her holiest name; and it is
 
 <center><img src="http://hermetic.com/crowley/libers/lib333-babalon.gif"></center>
