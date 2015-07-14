@@ -276,3 +276,26 @@ Glory to the most high god. In Enochian, this is:
 Which transliterated in Hebrew is 26, the same as YHVH, the Tetragrammation which is here shown rearranging in this and the previous Aethyr.
 
 Daleth in Egg of white light (Amalantrah Working? "It's all in the egg.")
+
+<center><h1><p style="font-family: Enochian Writing">GAB</p></h1></center>
+
+<center>The 28th Aethyr, BAG.<br>
+Hod in Yetzirah.<br>
+"The Vision of the Dawn of the Aeon of Horus (ATU XVII)."<br>
+Aries, Taurus, Leo.<br>
+The Emperor/The Hierophant/Lust.<br><br>
+Comment: Now is a further and clearer shadowing-forth of the Great Mystery of the Aeon which is to be led up to by the Aethyrs. Note however that the King of the New Aeon never appears until the First Aethyr.</center>
+
+BAG= 19, Eve, manifest, show forth.
+
+An invocation of Binah and foreshadowing of the Abyss/ZAX.
+
+An angel in a sapphire stone suggesting Tiphareth and Path Samekh, with eyes suggesting Binah (the Angel and the Abyss), warding Binah. If you come here you must be scarred with sorrow (become 8=3). Unification of opposing sephira. 
+
+The four Watch-Towers of the Elements are *within* Binah. Crossed arms of Osiris at Tiphareth before destruction as salt (8=3). 8=3 may make a new Qabalah, but intellectual manipulations are useless for crossing Abyss. 
+
+Name of warden, by a cipher, is:
+
+<center><h3><p style="font-family: Enochian Writing">PSPIXIL</p></h3></center>
+
+k
