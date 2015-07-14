@@ -14,6 +14,8 @@ Random notes and scraps to include in the book.
 
 - Tying Crowley's use of Enochian to view the dawning of the New Aeon with material in the Spirit Diaries. L (the original technical designation of the Book of the Law, "Liber L vel Legis," before Achad found the 31 key and it was retitled "Liber Al") is the central character on the Holy Table of Practice. Kelley's later transmission from "lying spirits" who tell him that Jesus is not God and transmit a kind of modern New Age/New Aeon doctrine that sounds like Thelema. Crowley's claim to be reincarnation of Kelley.  
 
+- Use BABALON as a central character / framing device: BABALON as superconsciousness, Binah, the Next New Way On. That this is perhaps what is trying to communicate through Dee/Kelley/Crowley/Neuberg: This potentially radically liberatory force. Bring in cult of Inanna (Sumeria)/Ishtar, the Goddess, Parsons' *Book of BABALON*? Peter Grey *Red Goddess*
+
 Crowley's review of Charlotte Fell-Smith's bio of Dee, from *The Equinox, Vol. 1, No. 3*, written *as* Kelley:
 
 JOHN DEE.  BY CHARLOTTE FELL SMITH.  Constable and Co. 10"s." 6"d." net.<br>
