@@ -54,6 +54,8 @@ Two mappings of the Aethyrs to the tree are given—one by the Golden Dawn, and 
 2/ARN: Chokmah in "<br>
 1/LIL: Kether in Atziluth.<br>
 
+<center><img src="http://www.thelemapedia.org/images/9/97/Treeoflife0.gif"></center>
+
 ##Operating Procedures
 
 Crowley's initial experiments were undertaken by modifying the 19th Call for each Aethyr, and then scrying the Spirit Vision—astral travel or willed imagination—which is outlined in the grade papers of the Golden Dawn. More precise methods, involving prepartory pentagrams and grade signs, are given in his later paper *Liber Chanokh*. None of this is found in Dee and Kelley; they are Golden Dawn methods. 9 years passed between his initial investigation of Aethyrs 30 and 29 and the Algerian experiment; this Crowley attributes to having increased his Grade or spiritual maturity to now be able to handle the visions. This factoring of the observer and their responses to messages, as well as changing information, perhaps, may be applied in reverse to Dee and Kelley. Crowley's line, again from the *Confessions*, is: "Anyone might use the Key for any Aethyr he chose, but he would either get no vision at all or expose himself to deception, and that probably of the deadly dangerous kind."
