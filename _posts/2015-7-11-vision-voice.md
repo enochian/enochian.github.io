@@ -355,3 +355,37 @@ UOHULU ARPAZNA BINUF LA LA LA ARANA SOBANA FONUSA SAD NEDIEZO LO LAHARA EN NOM T
 TUTULU: VII 7:6: "We know why all is hidden in the stone, within the coffin, within the mighty sepulchre, and we too answer Olalám! Imál! Tutúlu! as it is written in the ancient book."
 
 Unconnected imagery at beginning and end of visions: Ambient Yetziratic patterning due to astrological conditions (Eshelman's view).
+
+<center><h1><p style="font-family: Enochian Writing">SED</p></h1></center>
+
+<center>The 26th Aethyr, DES.<br>
+Tiphareth in Yetzirah.<br>
+"The Slave-Gods Superseded. (The Vision of Atu XX, the Stele.) The Vision of the Stele of Revealing, Abolishing the Aeon of the Slave-Gods."<br>
+Spirit, Virgo, Gemini.<br>
+Aeon/Hermit/Lovers.<br><br>
+Comment: The death of the past Aeon, that of Jehovah and Jesus; ends with an adumbration of the new, the vision of the Stelev of Ankh-f-n-Khonsu, whose discovery brought about in a human consciousness the knowledge of the Equinox of the Gods.</center>
+
+48, Kokab, sphere of Mercury—or by a Breeze calculation, 31, the secret key of AL. Nuit/Hadit. The TWINS, Ra-Hoor-Khuit/Hoor-Par-Kraat, combined as Heru-Ra-Ha, the Lord of the Aeon. Replacement of the Judgement with the Stele, the Aeon (Judging the Judgers). Crowley on calculations around name—the name means "The Sacred Secret Key-letter of *The Book of the Law* of Thelema, appearing through the Operation of Mercury as well as giving a complete symbolical description of the Stele itself."
+
+Pentagram (destiny of man) in the blackness of heaven that is the blackness of an angel (solar blackness = NOX = opening of mankind to superconsciousness). Angel of destruction symbolizes Jupiter-Jehovah / Osiris-Jesus who are Chesed and Tiphareth and therefore **never extended beyond the abyss to the Supernals**—never even had an idea of them! Absolutely critical. These are tribal gods... they have deprived mankind of hearing and sight (vision and voice, spirit and fire). Hence the V&V.
+
+12^3 = 1728 petals of fire, Zodiac brought to material plane (see Wake World on 13 times tables). A note suggesting that restriction of love to basic monogamous straight sex is a curse. More notes on formula of YHVH. Cult of Jehovah *cannot even reach Da'ath*. Jehovah is *not even the true Chesed, but the evil Dyad.* (i.e. Qliphoth of Chokmah? Chesed?) Jehovah was the evil Chesed in the Aeon of the True Chesed (Isis), his tyranny broken by the Solar Jesus; symbolized by a golden eagle breakiing out of a golden egg (but only a repeat of Old Aeon).
+
+The Eagle-Headed God Jesus cries: "There is no sin, and there is no salvation." (See the more controversial utterances of the Angels to Dee and Kelley on the non-existence of sin.) Crowley states Jesus knows this truth, but if he says it nobody will care about him. He senses incoming of NOX. Light is an illusion, truth is an illusion—the great illusions beyond life/space/time. (Elements/Pentagram/Binah/Tree/LVX are all illusions.) Everything is backward... Jesus as accursed child of elements, not their father. Calls to Binah to answer *his* prayer. He is being dissolved by the progress of human consciousness. *Ecclesia abhorret a sanguine*: The Church shrinks from blood (Binah/BABALON/formula of 8=3).
+
+45. The Perfect and the Perfect are one Perfect and not two; nay, are none!
+
+46. Nothing is a secret key of this law. Sixty-one the Jews call it; I call it eight, eighty, four hundred & eighteen.
+
+47. But they have the half: unite by thine art so that all disappear.
+
+48. My prophet is a fool with his one, one, one; are not they the Ox, and none by the Book?
+
+Literal pure-night-blue when the Thelemic gods are invoked? 
+
+Blood driven down by gods: Nuit, Hadit, Ra-Hoor-Khuit, Stele, and below is Seb/Geb, into whom is concentrated the clotted blood—Earth has absorbed the Carnage of the ruin wrought by Jesus and will grow a new life through putrefectation—the basic formula, not High Magick. The Christian era is fertilizer for the New Aeon. Fun fun for servants of star and snake...
+
+<center><img src="http://www.taroscopes.com/miscimages/aeon.jpg"></center>
+
+
+It will here be necessary to elaborate just *who the hell* Ankh-f-n-Khonsu is—not just another prior incarnation, we are asked to believe, of the Kelley/Cagliostro/Levi/Crowley entity, but a priest of the war-god Mentu (an analogue of Ra-Hoor-Khuit) during the final dynasty and cultural bloom of Egypt prior to its final conquest by Persia. The mythology is wrapped up with the transmission of the Book of the Law and discovered at the Cairo Museum. Or is AANK just another "spook" that is using Crowley, perhaps as an Egyptian sorceric method of reincarnation? (Crowley's followers recite identifactory, funerary hymns to AANK four times a day.)
