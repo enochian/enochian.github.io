@@ -502,3 +502,32 @@ Creature of earth and ye would have me swim = Assiah transfer to Yetzirah. Lion 
 
 The Voice of the Beast 666 is here just a tremendous roaring (martial), which is also articulate. 
 
+<center><h1><p style="font-family: Enochian Writing">NIA</p></h1></center>
+
+<center>The 24th Aethyr, NIA.<br>
+Chesed in Yetzirah.<br>
+"The Rose. (The Woman of Atu XIV, Minister of Babalon; the Water-Kerub in the Initiation.) The First Kiss of the Lady of Intitiation. <Love and TARO, etc., uniting—Hod and Netzach.>"<br>
+Capricorn/Caput Draconis/Sagittarius.<br>
+Devil/Priestess/Art.<br><br>
+Comment: Now appears his mate, the heavenly Venus, the Scarlet Woman, who by men is thought of as Babalon as he is thought of as Chaos.</center>
+
+Notes: Aethyrs 23-25 are marked by Crowley as pertaining to the Kerubs of Fire, Water, Earth and Air in his 8=3 initiation, as if it were a Golden Dawn temple initiation. Also, here we have the tantric unity of Chaos-Babalon—see Joel Biroco's KAOS-BABALON 156 current, and his "Word" of the Aeon, "Jubalcain." (Jubal being the son of Cain and brother of Tubal-Cain, the Masonic "Two Ball Cane," in Genesis 4. Jubal is said to have played the Pan-Pipe (TO PAN, "The All.") 
+
+NIA - 116, Atu XIV, the Woman Clothed With the Sun, between Scorpio and Taurus. "I am the Lord of the Double Wand of Power; the wand of the Force of Coph Nia--but my left hand is empty, for I have crushed an Universe; & nought remains."
+BEAST = &#9801;, Fire
+BABALON = &#9807;, Water
+They are the two-in-one chief officers of the temple of the New Aeon of Heru-Ra-Ha.
+
+Reattribution of Eagle Kerub to Aquarius/Air; Woman-Serpent as Scorpio/Water.
+
+Chokmah imagery. Sagittarius; woman in Sag. Venus. 
+
+IXº Secret here: Honey-colored dew (elixir) falls from the rose; it has been distilled from the Cauldron in ATU XIV. Chariot. Ivory as sexual excitement. Venusian angel on a Chariot. Love as motive to cross Abyss. Enochian:
+
+<center><h3><p style="font-family: Enochian Writing">NENNI OFEKUFA ANANAEL LAIADA I MAELPEREJI NONUKA AFAFA ADAREPEHETA PEREGI ALADI NIISA NIISA LAPE OL ZODIR IDIAN.</p</h3></center>
+
+Response: The Enochian "Open the Mysteries of your Creation," ODO KIKALE QAA:
+
+<center><h3><p style="font-family: Enochian Writing">ODO KIKALE QAA.</p</h3></center>
+
+Pentagram: Five-fold mystery. Make a PERFECT MAN (pentagram) by folding up his 10 consecutive qualities (Sephira) into a single symmetrical symbol (Star). But then that Star must be blotted out in the heart of Hadit—i.e., the "Point-of-View,    (!)
