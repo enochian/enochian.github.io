@@ -307,6 +307,17 @@ Name of warden, by a cipher, is:
 <center><h3><p style="font-family: Enochian Writing">LSPIXIL</p></h3></center>
 
 Originally calculated as Draco Magnus or Mighty Dragon, Nuit/Binah. Breeze notes this should be 552, "Desiderium dierum," 
-"Longing for the days." Angel says that it is above the three angels of this Aethyr, but that there are four angels in the 30th Aethyr who have none above them (therefore breaking up into the dispersion of Coronzom).
+"Longing for the days." Eshelman gives 491 by Hebrew and 620 by Enochian; he suggests the angel was trolling him by making him dwell on exactly the kind of intellectual bs he had just warned against. Angel says that it is above the three angels of this Aethyr, but that there are four angels in the 30th Aethyr who have none above them (therefore breaking up into the dispersion of Coronzom).
 
-"Face of mother is scarred by nails of devil" = Vau Vau Vau, 666? The number of mankind and also Sol, Tiphareth, below Binah. The seer descends to Tiphareth (Rose Cross) as Binah dissipates.
+"Face of mother is scarred by nails of devil" = Vau Vau Vau, 666? The number of mankind and also Sol, Tiphareth, below Binah. The seer descends to physically viewing his Rose Cross (rose cross imagery = his scrying equipment).
+
+Core message of Aethyr BAG, which corresponds directly to 3=8 Practicus grade, is that truth comes from intuition, not intellect. The transcendence of the intellect (HOD) which is the primary task of the Practicus.
+
+Passwords of all grades (55 + 45 + 36 + 28 + 21 + 15 + 10) = 210 = NOX, the Word of the Abyss.
+
+<center>The 27th Aethyr, AAZ.<br>
+Netzach in Yetzirah.<br>
+"The Vision of the Initiation of Hecate (Atu XIV). The Redemption of the Woman of Witchcraft by Love."<br>
+Leo, Taurus, Taurus.<br>
+Lust/Hierophant/Hierophant.<br><br>
+Comment: Hecate appears—her son, the son of a virgin, a magus, is to bring the Aeon to pass. And she, the herald, her function fulfilled, withdraws within her mystic veil.</center>
