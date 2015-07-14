@@ -315,9 +315,25 @@ Core message of Aethyr BAG, which corresponds directly to 3=8 Practicus grade, i
 
 Passwords of all grades (55 + 45 + 36 + 28 + 21 + 15 + 10) = 210 = NOX, the Word of the Abyss.
 
-<center>The 27th Aethyr, AAZ.<br>
+<center><h1><p style="font-family: Enochian Writing">AAZ</p></h1></center>
+
+<center>The 27th Aethyr, ZAA.<br>
 Netzach in Yetzirah.<br>
 "The Vision of the Initiation of Hecate (Atu XIV). The Redemption of the Woman of Witchcraft by Love."<br>
 Leo, Taurus, Taurus.<br>
 Lust/Hierophant/Hierophant.<br><br>
 Comment: Hecate appears—her son, the son of a virgin, a magus, is to bring the Aeon to pass. And she, the herald, her function fulfilled, withdraws within her mystic veil.</center>
+
+522 = Vau-Vau-Mem = 21, mystery of ATU XVIII, exaltation of Venus in Pisces (seems doubtful)
+
+If the paths truly are attributed by Sephira/4 Worlds as Eshelman suggests, there seems to be a lot of reflecting of higher worlds into lower (similar to how grades mirror the lessons of their reversals, i.e. 3=8/8=3). 
+
+Lunar and Venusian imagery (silver, huntress, etc—hence Hecate). Path Gimel (Hecate, Luna). Luna as the Sensorium, man's spiritual state in relation to perceived phenomena. 
+
+War of Aires and elements (I seem to remember that somebody somewhere actually took this to mean there was a war between angels of the Aethyrs and the ones of the Tablets; Crowley here suggests it to mean that coefficients of Circle and Square must be commensurable—squaring of circle, etc?) Kamailos = camel/rope across abyss. Angel of Daleth/love of Supernals balancing Path Gimel (similar to Samekh balancing Peh). Calling to hounds in the Lunar Language.
+
+Rose of 49 petals in cauldron.
+
+(From Etsy!)
+
+<center><img src=https://img0.etsystatic.com/051/1/9689613/il_570xN.710538476_9mal.jpg></center>
