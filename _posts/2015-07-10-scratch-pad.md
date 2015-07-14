@@ -10,6 +10,8 @@ Random notes and scraps to include in the book.
 
 - Will Self's comments on unhealthy obsession with Revelation in his introduction to the pocket edition
 
+- There are 91 governors of the Aethyrs, the same as AMN, Amen. Weren't there 91 days in Crowley's 9=2 initiation?
+
 - Tying Crowley's use of Enochian to view the dawning of the New Aeon with material in the Spirit Diaries. L (the original technical designation of the Book of the Law, "Liber L vel Legis," before Achad found the 31 key and it was retitled "Liber Al") is the central character on the Holy Table of Practice. Kelley's later transmission from "lying spirits" who tell him that Jesus is not God and transmit a kind of modern New Age/New Aeon doctrine that sounds like Thelema. Crowley's claim to be reincarnation of Kelley.  
 
 Crowley's review of Charlotte Fell-Smith's bio of Dee, from *The Equinox, Vol. 1, No. 3*, written *as* Kelley:
