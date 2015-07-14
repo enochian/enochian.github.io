@@ -324,16 +324,34 @@ Leo, Taurus, Taurus.<br>
 Lust/Hierophant/Hierophant.<br><br>
 Comment: Hecate appears—her son, the son of a virgin, a magus, is to bring the Aeon to pass. And she, the herald, her function fulfilled, withdraws within her mystic veil.</center>
 
-522 = Vau-Vau-Mem = 21, mystery of ATU XVIII, exaltation of Venus in Pisces (seems doubtful)
+522 = Vau-Vau-Mem = 21, mystery of ATU XVIII, exaltation of Venus in Pisces (seems doubtful).
+
+Eshelman: Leo Taurus Taurus = 7+1+1 = 9, Yesod (Moon).
 
 If the paths truly are attributed by Sephira/4 Worlds as Eshelman suggests, there seems to be a lot of reflecting of higher worlds into lower (similar to how grades mirror the lessons of their reversals, i.e. 3=8/8=3). 
 
-Lunar and Venusian imagery (silver, huntress, etc—hence Hecate). Path Gimel (Hecate, Luna). Luna as the Sensorium, man's spiritual state in relation to perceived phenomena. 
+Lunar and Venusian imagery (silver, huntress, etc—hence Hecate). Path Gimel (Hecate, Luna). Luna as the Sensorium, man's spiritual state in relation to perceived phenomena. This seems to track lunar/huntress imagery *across* the tree—Venus/Luna/Gimel/Sagittarius. Specifically: Gimel, Yesod, Qoph. This triple attribution of the moon = [Threefold Goddess](https://en.wikipedia.org/wiki/Triple_Goddess_(Neopaganism)) (Mother/Maiden/Crone, Hecate, the outer manifestation of BABALON/Binah, etc. Binah=3.) Imagery here subsumes all lunar. 
 
-War of Aires and elements (I seem to remember that somebody somewhere actually took this to mean there was a war between angels of the Aethyrs and the ones of the Tablets; Crowley here suggests it to mean that coefficients of Circle and Square must be commensurable—squaring of circle, etc?) Kamailos = camel/rope across abyss. Angel of Daleth/love of Supernals balancing Path Gimel (similar to Samekh balancing Peh). Calling to hounds in the Lunar Language.
+War of Aires and elements (I seem to remember that somebody somewhere actually took this to mean there was a war between angels of the Aethyrs and the ones of the Tablets; Crowley here suggests it to mean that coefficients of Circle and Square must be commensurable—squaring of circle, etc?) Eshelman: Tablets as interface between cubical material universe and Aethyrs. (Their letters form governors of Aethyrs; suggesting perhaps tablets as faces of cube projecting the Aethyrs OUTWARD like a holographic projection? War as Ruach vs Neshamah.)
+
+Rainbow path of Qesheth, Rainbow of Promise, Archer's Bow of Sagittarius = Solar light of Tiphareth *reflecting on* the lunar waters of Yesod (therefore creating the Path blending of the two Sephira); those who walk the path successfully become *Hodos Chamelionis* in G.D.
+
+Kamailos = camel/rope across abyss. Angel of Daleth/love of Supernals balancing Path Gimel (similar to Samekh balancing Peh). Calling to hounds in the Lunar Language.
 
 Rose of 49 petals in cauldron.
 
 (From Etsy!)
 
 <center><img src=https://img0.etsystatic.com/051/1/9689613/il_570xN.710538476_9mal.jpg></center>
+
+This symbols appears in Adeptus Minor initiation of GD in center of floor of Vault of the Adepti and also on the head of the Pastos. It is a symbol of Venus and now BABALON—and, of course, there are 49 Calls in total, 49 days in the Bardo between death and reincarnation in Tibetan Buddhism, 49 Tables given to Dee and Kelley by the angels (see DeSalvo, *Decoding the Enochian Secrets*, making this a most crucial number. 49 is also HGYAL, the Intelligence of Venus, MT, the Rod of Aaron, and many more. And of course is 7 x 7 (see the Seal of Babalon).
+
+Art card/Sagittarius (Cauldron). Hecate does not understand why BABALON needs the blood of the Adepts. Pearls = Masters of Temple secreted by Binah around specks of dust. Dragon as mask of Kephra in ATU XVIII. Black Dragon stage of alchemy (Portal ritual). Stone as code word for intimate union. Da'ath=Knowledge=Gnosis? (!) 
+
+Echoes of Liber LXV and VII. Phenomenon of destruction of phenomenon for M.T.; kisses... The word of the Aeon is MAKHASHANAH (418, a blind for ABRAHADABRA). And to call Hecate (Yorke reconstruction)—an invocation of Shekinah to descend the Middle Pillar to Tav:
+
+UOHULU ARPAZNA BINUF LA LA LA ARANA SOBANA FONUSA SAD NEDIEZO LO LAHARA EN NOM TUTULU MAHARNA OBOLO ARARNAY
+
+TUTULU: VII 7:6: "We know why all is hidden in the stone, within the coffin, within the mighty sepulchre, and we too answer Olalám! Imál! Tutúlu! as it is written in the ancient book."
+
+Unconnected imagery at beginning and end of visions: Ambient Yetziratic patterning due to astrological conditions (Eshelman's view).
