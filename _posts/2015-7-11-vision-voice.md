@@ -155,7 +155,7 @@ Eshelman, James A. *Visions & Voices: Aleister Crowley's Enochian Visions With A
 <center>The 30th Aethyr, TEX.<br>
 Malkuth in Yetzirah.<br>
 "The Exordium of the Equinox of the Gods."<br>
-Caput Draconis / Virgo / Earth. [417: 418-1]<br>
+Caput Draconis / Virgo / Earth. [417: 418-1—also see emphasis on 419 in Aethyr 25]<br>
 Priestess / Hermit / Universe.<br><br>
 Comment: Without the cube—the material world—is the sphere-system of the spiritual world enfolding it. The Cry seems to be a sort of Exordium, an external shewing-forth of the coming of the new Aeon, the Aeon of Horus the crowned child.</center>
 
@@ -417,11 +417,25 @@ Capricorn/Caput Draconis/Sagittarius.<br>
 Devil/Priestess/Art.<br><br>
 Comment: Appearance of the Lion God of Horus, the child of Leo that incarnates him. The first Angel is Isis its mother.</center>
 
-Caput Draconis is head of lion-serpent/Beast 666 (see Enochian Alphabet) [sperm as blood of new Aeon], born of Set/Pan and woman clothed with sun—see Casaubon and Revelation [is the woman clothed with the sun BABALON?] Rev 12:1 "A great sign appeared in heaven: a woman clothed with the sun, with the moon under her feet and a crown of twelve stars on her head." Atus of Lust + The Aeon give key of New Aeon. (XI+XX=XXXI, Achad's Key.) Stone of Gemini/twins (RHK/HPK). An angel bearing a pitcher/amphora (cup/ATU XVII?) that is Avatar of Babalon. Accompanied by angels of Death (Kalki) and Jehovah/Jesus—these are swallowed up by the lion Beast 666. This lion's mouth is closed by Babalon (Strength). Arrayed with angels with silver spears (Crowley says in later commentary to Liber LXV that angels with spears, weaponry, trumpets, lightning, etc are positive symbols/of HGA rather than the decay and dispersion attendant upon evil genius). Stars burnt up in nostrils (Pranayama). Paraphrase of Bornless One—let all these spirits be as motes dancing in a beam of my eye. 
+<center><img src="http://www.bibliotecapleyades.net/crowley/tarot_images/lusta.jpg"></center>
+
+Eshelman: Enochian enumerates to 25, 5x5 (Geburah), YHVD (Briatic Name of Geburah), ChIVA (Beast- Shiva as Pashupatinath?). Not mentioned by JAE is that 25=the Pentagram, and of course V.V.V.V.V., the head of A.A. and Crowley's motto as Magister Templi, who is here identified with the Beast and has "10 horns that spring from 5 points" and 8 heads.
+
+Crowley identifies the Beast with both Leo AND Caput Draconis and occasionally confuses them in his handwritten notes.
+
+Caput Draconis is head of lion-serpent/Beast 666 (see Enochian Alphabet) [sperm as blood of new Aeon], born of Set/Pan and woman clothed with sun—see Casaubon and Revelation [is the woman clothed with the sun BABALON?] Rev 12:1 "A great sign appeared in heaven: a woman clothed with the sun, with the moon under her feet and a crown of twelve stars on her head." Atus of Lust + The Aeon give key of New Aeon. (XI+XX=XXXI, Achad's Key.) Stone of Gemini/twins (RHK/HPK). An angel bearing a pitcher/amphora (cup/ATU XVII?) that is Avatar of Babalon. Angel consolidatess paths going downward to Tiphereth from Supernals—Gimel (intersecting Teth—Moon/Sun, high tantric, AL:I he sun/she moon etc), Zayin and Heh.
+
+Accompanied by angels of Death (Samekh) (Kalki) and Jehovah/Jesus (A'ayin)—these are swallowed up by the lion Beast 666. This lion's mouth is closed by Babalon (Strength). Arrayed with angels with silver spears (Crowley says in later commentary to Liber LXV that angels with spears, weaponry, trumpets, lightning, etc are positive symbols/of HGA rather than the decay and dispersion attendant upon evil genius). Stars burnt up in nostrils (Pranayama). Paraphrase of Bornless One—let all these spirits be as motes dancing in a beam of my eye. 
+
+Teth actually means "a coiling, twisting" according to Karl Feyerabend (not Paul)=i.e. Kundalini, which also literally means "coiled" (not snake) in Sanskrit—by *Sepher Yetzirah*, Teth, is "the consciousness of the secret of all spiritual activities." Devouring of everything by *shushumna* channel (hence kundalini imagery and Babalon as Sakti). Blasting trumpets = nadi sounds, see Hatha Yoga Pradpika, as well as ATU XX in old deck (Israfel).
+
+The word Gimel (GML) is a formula for advance of the Adeptus Minor—the goal in reflection in lower grades? (Similar to cleaving to Samekh while in Hod/Netzach?) GML, Gimel spelt in full = Paths Gimel, Mem, Lamed (see tree). Hod>Geburah>Tiphareth>Kether.
 
 Swallowing Scorpio and Netzach (wouldn't that be Tiphareth? Yes, Lion is a solar/Tiphareth symbol). Also slain Capricornus and drunk up sea (Cap/Hod). [So lion in Tiphareth crowns the Man's attainment—Crowley's various early notes on all symbols of Adonai being subsumed into that of a Lion, the Beast 666—but it is silenced/ridden by Babalon in Teth.] 419 rays in crown, snake body, [<-- Leo imagery] soul of Crowned Child. 419-418=1; 667[Scarlet Woman]-666=1. 
 
-"In his hand is a spear that is a cup of fornication" = IXº OTO (kept secret here). On mouth is seal of 156. Secret of vvvvv—VVVVV has 10 horns that spring from 5 points (= **The Pentagram, VVVVV**) and 8 heads. 
+419=TITh, Teth in full; 418 = ChITh, Beast +1=419
+
+"In his hand is a spear that is a cup of fornication" = IXº OTO (kept secret here). On mouth is seal of 156. Secret of vvvvv—VVVVV has 10 horns that spring from 5 points (= **The Pentagram, VVVVV**) and 8 [Cheth, same spelling as ChITh, beast.] heads. 
 
 From *Liber 333, Cap. 49*:
 
@@ -436,7 +450,7 @@ Seven are the names, and seven are the lamps beside Her bed.
 Seven eunuchs guard Her with drawn swords; No Man may come nigh unto Her.
 In Her wine-cup are seven streams of the blood of the Seven Spirits of God.
 Seven are the heads of THE BEAST whereon She rideth.
-**The head of an Angel: the head of a Saint: the head of a Poet: the head of An Adulterous Woman: the head of a Man of Valour: the head of a Satyr: and the head of a Lion-Serpent.** [BUT IN THE AETHYR HE NOTES that there is an 8th head too terrible to mention.]
+**The head of an Angel: the head of a Saint: the head of a Poet: the head of An Adulterous Woman: the head of a Man of Valour: the head of a Satyr: and the head of a Lion-Serpent.** [BUT IN THE AETHYR HE NOTES that there is an 8th head too sacredly terrible to mention.]
 Seven letters hath Her holiest name; and it is
 
 <center><img src="http://hermetic.com/crowley/libers/lib333-babalon.gif"></center>
@@ -475,3 +489,16 @@ It will be noticed that this seal, except for the absence of a border, is the of
 It is also said to be the seal upon the tombs of them that she hath slain, that is, of the Masters of the Temple.
 
 In connection with the number 49, see Liber 418, the 22nd Aethyr, as well as the usual authorities.
+
+--
+
+Beast is charioteer (Cheth) of West, bearer of Sangraal. Heru-Ra-Ha as martial aspect of Sol (5=6/6=5), warrior lord of sun: "There is a splendour in my name hidden and glorious, as the sun of midnight is ever the son." Yet in him is woman that devoureth with her water all the fire of God [IXº OTO].
+
+"Hell" as inmost part of man that consumes all experiences and thereby understands its own perfection (Formula of Babalon, queen of hell). 32 teeth, tongue as firey logos, four rivers of Eden that flow from Da'ath, see Aethyr 30 = fourfold understanding of logos (in four worlds). Blasphemed by TAOTZEM (taking material for spiritual sun—note for Resh). Name not to know in case pronounce and pass by (alphabet of passing the river?) Crowley weighed with sin of world. Foreshadow 9=2 initiation. 
+
+Creature of earth and ye would have me swim = Assiah transfer to Yetzirah. Lion passes over Aethyr with crowned beast (VVVVV) on his back. In his tail are cities, planets etc. Tuft is a new universe. A foreshadowing of the Aeon of Thmaist, the Double-Wanded One (Greek form of Ma'at)—Lamed, proceeding away from Tiphareth to Geburah. A pale stern figure bigger than the universe, in silver (Luna) armour with a sword and pair of balances (Mars/Lamed, in Pillar of Severity perpendicular to Gimel/Luna).
+
+"And the voice said..." descriptive of 6=5 grade.
+
+The Voice of the Beast 666 is here just a tremendous roaring (martial), which is also articulate. 
+
