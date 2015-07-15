@@ -511,12 +511,16 @@ Capricorn/Caput Draconis/Sagittarius.<br>
 Devil/Priestess/Art.<br><br>
 Comment: Now appears his mate, the heavenly Venus, the Scarlet Woman, who by men is thought of as Babalon as he is thought of as Chaos.</center>
 
+Aethyrs 24/23/22 in days surrounding full moon, Mars risen...
+
 Notes: Aethyrs 23-25 are marked by Crowley as pertaining to the Kerubs of Fire, Water, Earth and Air in his 8=3 initiation, as if it were a Golden Dawn temple initiation. Also, here we have the tantric unity of Chaos-Babalon—see Joel Biroco's KAOS-BABALON 156 current, and his "Word" of the Aeon, "Jubalcain." (Jubal being the son of Cain and brother of Tubal-Cain, the Masonic "Two Ball Cane," in Genesis 4. Jubal is said to have played the Pan-Pipe (TO PAN, "The All.") 
 
 NIA - 116, Atu XIV, the Woman Clothed With the Sun, between Scorpio and Taurus. "I am the Lord of the Double Wand of Power; the wand of the Force of Coph Nia--but my left hand is empty, for I have crushed an Universe; & nought remains."
 BEAST = &#9801;, Fire
 BABALON = &#9807;, Water
 They are the two-in-one chief officers of the temple of the New Aeon of Heru-Ra-Ha.
+
+Eshelman: 61 (Ayin, nothing, not); ani, anatta. ELIK, to thee. "Serpentine images of inner teaching."
 
 Reattribution of Eagle Kerub to Aquarius/Air; Woman-Serpent as Scorpio/Water.
 
@@ -526,9 +530,11 @@ IXº Secret here: Honey-colored dew (elixir) falls from the rose; it has been di
 
 <center><h3><p style="font-family: Enochian Writing">NENNI OFEKUFA ANANAEL LAIADA I MAELPEREJI NONUKA AFAFA ADAREPEHETA PEREGI ALADI NIISA NIISA LAPE OL ZODIR IDIAN.</p</h3></center>
 
-Response: The Enochian "Open the Mysteries of your Creation," ODO KIKALE QAA:
+IDOIAN = Kether, Hawk, summum bonum, etc
 
-<center><h3><p style="font-family: Enochian Writing">ODO KIKALE QAA.</p</h3></center>
+Response: The Enochian "Open the Mysteries of your Creation," ODO KIKALE QAA/ODO CICLE QAA:
+
+<center><h3><p style="font-family: Enochian Writing">ODO CICLE QAA.</p</h3></center>
 
 Pentagram: Five-fold mystery. Make a PERFECT MAN (pentagram) by folding up his 10 consecutive qualities (Sephira) into a single symmetrical symbol (Star). But then that Star must be blotted out in the heart of Hadit—i.e., the "Point-of-View,    (!)
 
