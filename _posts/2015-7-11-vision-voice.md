@@ -539,3 +539,10 @@ Response: The Enochian "Open the Mysteries of your Creation," ODO KIKALE QAA/ODO
 Pentagram: Five-fold mystery. Make a PERFECT MAN (pentagram) by folding up his 10 consecutive qualities (Sephira) into a single symmetrical symbol (Star). But then that Star must be blotted out in the heart of Hadit—i.e., the "Point-of-View,    (!)
 
 The totality of experiences has amount to Perfection; there is no more need of a phenomenal universe. "For I am divided for love's sake, for the chance of union." Under the shadow of thy wings—*Sub umbra alarum tuarum Adonai quies et felicitas*—is in the Fama Fraternitas as well as the Golden Dawn Neophyte Ritual [Dee incorporation] but here refers to 5=6 initiation. True wisdom is under night of pan. True medicine wine of death (AL). glory of god by no means (?) extends to void - you're on your own? These are on tomb of C.R. Mercury, Sulphur, Salt. IXº OTO reference. 3 years = 156 weeks, the time it takes to assimilate the 8=3 initiation. [It had been 156 weeks since a December 1906 astral vision in which Crowley was invited to partake in the Abyss/masters - the one of them eating the guy.] Letters TARO around the tomb of CR (VVVVV). The Tree of Life is ruled by three rings (wand of Hierophant, Liber Reguli)—Supernal Love (Daleth); Formula of Babalon and Beast (Teth); and the formula hinted at in Liber AL (? The whole thing?) By the four letters TARO you an do anything, white or black (Tree of Life). Roof of Aethyr is Mars. 
+
+<center>The 23rd Aethyr, TOR.<br>
+Binah in Yetzirah.<br>
+"The Kerubim of Earth and Air. (Minor officers in the Initiation to 8=3.) The Vision of the Interplay and Identity of Earth and Air. <Bull and Eagle.>"<br>
+Caput Draconis/Libra/Pisces.<br>
+Priestess/Adjustment/Moon.<br><br>
+Comment: Here appear the Cherubim, the other officers of the new Temple, the earth and water assistants of the fire and air Beast and Scarlet Woman.</center>
