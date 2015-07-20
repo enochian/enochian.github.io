@@ -19,40 +19,42 @@ Crowley, according to his *Confessions*, had read Casaubon before embarking on h
 
 30 consecutive Aethyrs are outlined by Kelley—as given to Dee and Kelley on July 13, 1584 by the angels Ile and Gabriel (the latter being the same angel that disclosed the Qu'ran to the prophet Mohammed). These aethyrs are either "dominion extending in ever widening circles without and beyond the Watchtowers of the Universe," the cube of the Universe formed by the four tables; or aires simply means "climes" and they pertain to different parts of the world. Either they are spiritual landscapes, terrestrial locations or, somehow, both; Crowley and Neuberg used them as the former and not the latter.
 
-Two mappings of the Aethyrs to the tree are given—one by the Golden Dawn, and another by a second order Golden Dawn schema mentioned in the 9th Aethyr. The first of these, which is elegant enough, is that the Aethyrs map the ten sephiroth as repeated in sequence in the latter 3 of the 4 Qabalistic worlds—Yetzirah, Briah and Atziluth, or the Astral, Causal and Spiritual planes in Theosophical language—skipping Assiah totally, as the Aethyrs are concentric spheres outwith the cube of the physical universe (Malkuth) depicted in the 30th Aethyr. This scheme is:
+Two mappings of the Aethyrs to the tree are given—one by the Golden Dawn, and another by a second order Golden Dawn schema mentioned in the 9th Aethyr. The first of these, which is elegant enough, is that the Aethyrs map the ten sephiroth as repeated in sequence in the latter 3 of the 4 Qabalistic worlds—Yetzirah, Briah and Atziluth, or the Astral, Causal and Spiritual planes in Theosophical language—skipping Assiah totally, as the Aethyrs are concentric spheres outwith the cube of the physical universe (Malkuth) depicted in the 30th Aethyr. 
+
+This scheme is as follows. We have here included the astrological attributions for each (from the Enochian character attributions) as well as the "Color Scale" for the Aethyrs given in Aethyr 18, ZEN.
 
 <center><img src="https://i.imgur.com/jj5SjZj.jpg?1"></center>
 
-30/TEX: Malkuth in Yetzirah<br>
-29/RII: Yesod in "<br>
-28/BAG: Hod in "<br>
-27/ZAA: Netzach in "<br>
-26/DES: Tiphareth in "<br>
-25/VTI: Geburah in "<br>
-24/NIA: Chesed in "<br>
-23/TOR: Binah in "<br>
-22/LIN: Chokmah in "<br>
-21/ASP: Kether in "<br>
-20/KHR: Malkuth in Briah<br>
-19/POP: Yesod in "<br>
-18/ZEN: Hod in "<br>
-17/TAN: Netzach in "<br>
-16/LEA: Tiphereth in "<br>
-15/OXO: Geburah in "<br>
-14/UTA: Chesed in "<br>
-13/ZIM: Binah in "<br>
-12/LOE: Chokmah in "<br>
-11/IKH: Kether in "<br>
-10/ZAX: Malkuth in Atziluth(!)<br>
-9/ZIP: Yesod in "<br>
-8/ZID: Hod in "<br>
-7/DEO: Netzach in "<br>
-6/MAZ: Tiphareth in "<br>
-5/LIT: Geburah in "<br>
-4/PAZ: Chesed in "<br>
-3/ZOM: Binah in "<br>
-2/ARN: Chokmah in "<br>
-1/LIL: Kether in Atziluth.<br>
+30/TEX: Malkuth in Yetzirah: Caput Draconis/Virgo/Earth: Mixed Colors<br>
+29/RII: Yesod in ": Pisces/Sagittarius/Sagittarius: Bluish-Green<br>
+28/BAG: Hod in ": Ares/Taurus/Leo: Indigo<br>
+27/ZAA: Netzach in ": Leo/Taurus/Taurus: Angry clouds of ruddy brown<br>
+26/DES: Tiphareth in ": Spirit/Virgo/Gemini: White flecked with red, blue, yellow; edges of letters green<br>
+25/VTI: Geburah in ": Capricorn/Caput Draconis/Sagittarius: Cold Dark Gray<br>
+24/NIA: Chesed in ": Scorpio/Sagittarius/Taurus: Beetle-Brown+Blue-Brown<br>
+23/TOR: Binah in ": Caput Draconis/Libra/Pisces: Violet Cobalt<br>
+22/LIN: Chokmah in ": Cancer/Sagittarius/Scorpio: Rose-Madder<br>
+21/ASP: Kether in ": Taurus/Gemini/Cancer: Pale Green<br>
+20/KHR: Malkuth in Briah: Fire/Air/Pisces: Mauve<br>
+19/POP: Yesod in ": Cancer/Libra/Cancer: Crimson adorned with Silver<br>
+18/ZEN: Hod in ": Leo/Virgo/Scorpio: Bright Yellow<br>
+17/TAN: Netzach in ": Caput Draconis/Taurus/Scorpio: Crimson<br>
+16/LEA: Tiphereth in ": Cancer/Virgo/Taurus: Pale Blue<br>
+15/OXO: Geburah in ": Libra/Earth/Libra: Olive<br>
+14/UTA: Chesed in ": Capricorn/Caput Draconis/Taurus: Amber<br>
+13/ZIM: Binah in ": Leo/Sagittarius/Aquarius: Green-Gray<br>
+12/LOE: Chokmah in ": Cancer/Libra/Virgo: Russet<br>
+11/IKH: Kether in ": Sagittarius/Fire/Air: Maroon<br>
+10/ZAX: Malkuth in Atziluth(!): Leo/Taurus/Earth: Black<br>
+9/ZIP: Yesod in ": Leo/Sagittarius/Cancer: Gray<br>
+8/ZID: Hod in ": Leo/Sagittarius/Spirit: Indigo<br>
+7/DEO: Netzach in ": Spirit/Virgo/Libra: Orange<br>
+6/MAZ: Tiphareth in ": Aquarius/Taurus/Leo: Sapphire<br>
+5/LIT: Geburah in ": Cancer/Sagittarius/Caput Draconis: Silver<br>
+4/PAZ: Chesed in ": Cancer/Taurus/Leo: Emerald<br>
+3/ZOM: Binah in ": Leo/Libra/Aquarius: Violet<br>
+2/ARN: Chokmah in ": Taurus/Pisces/Scorpio: Scarlet<br>
+1/LIL: Kether in Atziluth: Cancer/Sagittarius/Cancer: Gold<br>
 
 <center><img src="http://www.thelemapedia.org/images/9/97/Treeoflife0.gif"></center>
 
@@ -548,3 +550,617 @@ Binah in Yetzirah.<br>
 Caput Draconis/Libra/Pisces.<br>
 Priestess/Adjustment/Moon.<br><br>
 Comment: Here appear the Cherubim, the other officers of the new Temple, the earth and water assistants of the fire and air Beast and Scarlet Woman.</center>
+
+Esh: TOR = 279, nothing special? [“Leprosy”—is this is a reference to condition of Earth as constant change/decay/flaking off/disease/production of Qlipha?]
+
+Vision of North/Earth. [Esh: Crossing to threshold of Supernals in Yetzirah]
+
+Full Moon was in Taurus/Scorpio… attributed kerubs of Golden Dawn here appear. 
+
+The three gunas [Esh: or Supernals?] revolve in the shewstone. Silver spider web veil [ATU II/ Binah] of illusion, behind a star of 12 rays [Chokmah] and Tamas as bull of earth [Kether as Air/Taurus in Supernals?] [Apis], one of 4 officers of new temple. A warning not to ignore real life by being seduced by the Mysteries themselves. French say exalté. Beetle, midnight sun (hope of earth) in mouth. References to other cherubs. Assyrian winged bullman [Lamassu—Sumerian, from epic of Gilgamesh; these represent the parent-stars or zodiac. See star of 12 rays before bull? They are physical microcosms of zodiac, also household protective spirits. These > Jews > Four Gospels. ].
+
+Mystics and even the kingdom of heaven itself upholds the Sky (Seb/Nuit), to neglect this leads to ruin… this has done in many mystics. Crown of thorns and spear as Osiris, Bull is sacred to Osiris. Egg of blackness (Akasha); formula of YHVH formulating father and fertilizing mother (Invocation of Horus). 
+
+[North: 0=0 entering of path of darkness that one may be brought to light]
+
+Identity of Taurus with Scorpio, his zodiacal opposite. Bull as Vau: Chokmah to Chesed. Reference to woman and bull: 16th Aire. Ruins of Eden / Leviathan of False Sea (Mathers translating Rosenroth on Qliphoth):
+
+http://www.sacred-texts.com/jud/tku/tku04.htm
+
+25. But there are excavations of excavations. (The excavation is the receptacle, like that which is hollowed out, or carved out, like a cave, or any other receptacle. Therefore all receptacles are inferior with respect to the superiors, among which the "shells" hold the last place, which here are described, which are) under the form of a vast serpent extending this way and that. (Concerning this serpent the author of the "Royal Valley" speaks thus in his "Treatise of the Shells." The fragments of the receptacles, which have fallen into the world of Creation, of Formation, and of Action, therein exist from the Outer; and judgments are more consonant to these, which are called profane, and have their habitation in the middle space between the Holy and the Unclean. And from the head is formed that great dragon which is in the sea, and is the sea-serpent, which is, however, not so harmful as the earthly one. And this dragon hath been castrated since his crest (or membrum genitale), together with his mate, have been repressed, and thence have been formed four hundred desirable worlds. And this dragon hath in his head a
+
+p. 51
+
+nostril (after the manner of whales) in order that he may receive influence, and in himself he containeth all other dragons, concerning which it is said: "Thou hast broken the heads of the dragons upon the waters" (Ps. lxxiv. 13). And here the idea or universal form of all the shells is understood, which encompasseth the seven inferior emanations of the queen after the manner of a serpent, as well from the right as from the left and from every side.)
+
+[The excavation or receptacle of a Sephira is that quality whereby it receives the supernal influence from that which immediately precedes it; hence each Sephira has a double quality of receiving and of transmitting, which passes through the four worlds in each which the Sephiroth exist, though in gradually decreasing light. (See Table subjoined.) The "shells," Qlipoth, are the demons, in whom again is a form of the Sephiroth, distorted and averse. This great dragon which is here described is evidently identical with the leviathan of Job. He is the executor of judgment, the centripetal force, the old serpent ever seeking to penetrate into Paradise; finally, in a more exoteric sense he is Satan and the devil, the accusing one. In the Sepher Yetzirah, a most important qabalistical book, he is called Theli, ThLI, the dragon. Now, by Gematria. ThLI = 400 + 30 + 10 = 440; and if we "repress his crest"--i.e., take away the first letter, which is Th, Tau,--400, there will remain LI = 40 = M, Mem, the water. The "400 desirable worlds" are the numerical value of Th, and signify the power of the Tetragrammaton on the material plane (See note to section 21, foregoing). There is much alchemical symbolism contained in the "Siphra Dtzenioutha." The "Seven Inferior Emanations" of the queen, are the seven lower Sephiroth --viz., Chesed, Geburah, Tiphereth, Netzach, Hod. Yesod, and Malkuth; or Microprosopus and his bride, the king and queen. Shells," Qliphoth, are the evil spirits.]
+
+26. His tail is in his head (that is, he holdeth his tail in his mouth, in order that he may form a circle, since he is said to encompass holiness). He transferreth his head to behind the shoulders (that is, he raiseth his head at the back of the bride of Microprosopus, where is the place of most severe judgments), and he is despised (since in him is the extremity of judgments and severities, whence wrath is the attribute of his forms). He watcheth (that
+
+p. 52
+
+is, he accurately searcheth out and seeketh in what place he may gain an entry into holiness. And he is concealed (as if laying traps; since he insinuateth himself into the inferiors, by whose sins he hath access to the holy grades, where the carrying out of judgments is committed to him.) He is manifested in one of the thousand shorter days. (Numbers are called days, and numbers of the inferior world short days; among which tens are attributed to the factive, on account of their decimal numeration; hundreds to the formative, since they are numbers of the light of their author, and draw their existence from the tens; but thousands to the creative, for the same reason. But that dragon hath about this his. most powerful location, whence, if a defect occurreth only in one numeration of that system through the fault of the inferiors, he is immediately manifest, and thus commenceth his accusations before the throne of glory.)
+
+[Here is the origin of the well-known symbol of a serpent holding his tail in his mouth, like a circle--the serpent of Saturn. The reason that he raiseth his head behind the shoulders of the bride (Malkuth) is because he is. so to speak, not only the executor of judgment, but also the destroyer; destruction as opposed to creation, death as opposed to life. For the whole Sephiroth are represented as being the balance of mercy and justice, and the tenth Sephira is especially of the nature of justice, as also is Geburah. the fifth. He is concealed, because he is not called into action till justice requires him. The term "decimal numeration" of course refers to the ten Sephiroth. The presence of the serpent when revealed, is an accusation, because it shows that the balance is destroyed; just as in a watch, if one of the wheels be injured, irregularity is at once manifested. Now, life, when it consists of birth into another form, necessarily implies death in the previous form. The throne of glory is the Briatic world.]
+
+27. There are swellings in his scales (that is, like as in a crocodile; because great in him is the heaping together of judgments). His crest keepeth its own place (that is, there is in him no further power of hastening to things beyond in the Outer).
+
+p. 53
+
+[There is in the destroyer no "hastening to the outer," because he is centripetal and not centrifugal.]
+
+28. But his head is broken by the waters of the great sea. (The great sea is wisdom, the fountain of mercy and loving-kindness; which, if it sendeth down its influence, judgments are pacified, and the hurtful power of the shells is restricted); like as it is written, Ps. lxxiv. 13: "Thou hast broken the heads of the dragons by the waters."
+
+["The waters of the great sea," are the influence of the supernal mother, Binah, of whom Malkuth is the reflection. But Binah receives the influence of Chokmah. See Introduction.]
+
+29. They were two (male and female, whence the text of the Psalm speaketh of the dragons in the plural number; but when the plural number is given in its least form, two only are understood). They are reduced into one (for the female leviathan hath been slain, lest they should seek to multiply judgments). Whence the word ThNINM, Thenanim (in the before-mentioned passage of the Psalm), is written in a defective form (purposely to denote that restriction).
+
+[I may refer the reader to the Talmud for further information regarding Jewish ideas of the Leviathan. Thenanim is written in a defective form, because the letter I of the plural is omitted. Written fully, it should be ThNINIM, instead of ThNINM.]
+
+30. (But it is said) heads (in the plural number, for the purpose of denoting a vast multitude, as well of species as of individuals in that genus); like as it is written, Ezek. i. 22: "And a likeness as a firmament above the heads of the living creature." (Where also the word living creature, ChIH, Chiah, is put in the singular as a genus of angels; and heads in the plural for the purpose of denoting species and innumerable individuals.)
+
+["Thou hast broken the heads of the dragons (Thenanim) by the waters." It must be remembered that this dragon is said by the author of the "Royal Valley" to be the king of all the "shells"
+
+p. 54
+
+or demons. Now, the demons are divided into ten classes. corresponding to the ten Sephiroth, but in an averse form, and are called in the book, "Beth Elohim," the "impure Sephiroth." The heads of the leviathan (cf. the Lernæan Hydra which Hercules slew) are probably these. Compare the description of the beast in Revelation.]
+
+Rose of earth surmounts cross of fire in symbol venus (note rose/cross symbol). 
+
+Toil creates kinetic energy. In my stability is concentrated eternal change. Whirlings of universe are course of blood in my heart. variety is crown. … doctrine of Stability = Change (9=2/2=9) and universe as stable change [Rashith ha-Gilgalim, Buddhist Change/Sorrow—anikka and dukkha as Chokmah and Binah{!!}], everything being the Bull Kerub of Earth [matter]. Silver/Purple/Golden [Yesod/Tiphareth] veils. Women kissing: Bull=Eagle. Veils open again: Assyrian eagle [Again Sumerian/Assyrian imagery of the Kerubs. i.e. Sumerianize the elemental kerubs in practice]. 
+
+http://m6.i.pbase.com/o6/37/556037/1/109713176.d3LA5liL.EPO_7162_small.jpg
+
+Disk becomes sword, bull becomes eagle. Scorpion heart in bull of mithras. 
+
+[Heart of Scorpion = Antares, 2º arc from being exactly opposite Aldebaran, the brightest star in Taurs.]1
+
+Mary as harlot in stable. Formula of dying God. Air has peripheral consciousness. [Overthrowing of Crowley’s sex-shame]
+
+[Esh: Bull/Eagle as lingam/yoni of Scorpio, uniting in rose-cross.]
+
+The True Unity exists in no number, but in ALEPH-NULL as a whole. [PRACTICUS CUP.]
+
+The Cross [Nuit] extends infinitely as the Rose is its minute point of center [Hadit], they are therefore Nuit and Hadit, the correlative symbols of infinity. 
+
+Eagle scream treble, Bull bellow bass: complimentary vibrations.
+
+Peace in (Air + Earth) (geometric figures themselves):
+	8 quarters (YHVH x 2)
+	10 points of pentagram (YHShVH x 2)
+	12 rays of seal of Solomon (Hexagram x 2)
+	430 whirlings of hammer of Thor (Swastika x 2)
+
+FALUTLI, FALUTLI! (VII V:30). Aleph (Harpocrates, Parisfal, etc) + HGA/Prana/Center of Sun (UT in Upanishads) + LI (Heb. “To Me”—Nuit, LI Adjustment(satisfied woman)+Hermit, spermatozoon)
+
+[Soror Meral: Faluti = VALA’aTLI = 156, Babalon, Hriliu]
+
+UT in Up.: 
+
+6. Let a man meditate on the syllables of the udgîtha, i. e. of the word udgîtha. Ut is breath (prâna), for by means of breath a man rises (uttishthati). Gî is speech, for speeches are called girah. Tha is food, for by means of food all subsists (sthita).
+
+7. Ut is heaven, gî the sky, tha the earth. Ut is the sun, gî the air, tha the fire. Ut is the Sâma-veda,, gî the Yagur-veda, tha the Rig-veda 1.
+
+LIN
+
+The 22nd Aethyr, LIN.
+Chokmah in Yetzirah.
+“The 49-fold table. (First appearance of the Crowned and Conquering Child to the Exempt Adept as in the Pastos.) The Vision of the Rose, the Heart of BABALON and of the Birth of the Universe. <Sevenfold Table>.”
+Cancer/Sagittarius/Scorpio.
+The Chariot/Air/Death.
+
+Comment: Here is the First Key to the formula of Horus, a sevenfold arrangement. A shadow of Horus declares his nature.
+
+LIN=ChSN, ruler of Air, Strength. 118 = 2 x 59, Brethren. Twins concealed in HeruRH. Lilith/Samael. First formula of Horus is that of Babalon, as He is yet within HER womb. [Note 10th Aire, PARAOAN-I’m not there yet]
+
+[esh: Mercurial symbolism. Also solar symbolism—high/deeper version of the 5=6 GD initiation. Note outer/inner initiations. LIN= 9, Tzaddi, “Sun of the Morning, Chief Among the Mighty” (see line 21 of aethyr, Harpocrates on lotus), emerging kingship. LIN = Paths of Cheth, Samekh, Nun: Openings to Binah, Tiphareth and then Tiphareth with reference to Binah {50 Gates}]
+
+Into the stone: The table of 49 squares. (Chanokh: SAAIME/SBHDIII table—this is presumably the 7 names of Sigillum Dei Aemeth i.e. Babalon, arranged into a magical square—or this square likely predated the Sigillum? See Skinner.). {7 planetary angels are drawn from this table.} Surrounded by angels [Gods down to elementals]. Each letter composed of 49 other letters, in a language similar to that of Honorius/Theban [See Agrippa—~1531, pre-Dee and Dee influential]. (!!) But cannot be read. Now comes PAN as an angel uniting 7 planets [9th Aethyr] [many colors, but = Chokmah; as gray of chokmah = all colors. Also Samekh = rainbow]. Aire beocmes light and drips dew [Supernal Lion-Serpent in Menstruum of Liquid Pearl {Gimel?}] [JAE starts calling this a “quasi-physical” kundalini phenomenon here are starts babbling about John Denver wtf. Mentioned in GD 4=7?]. Dew = enormous globs, shining like moon, perfectly transparent and luminous.  [falling yods. Gen 27:38]
+
+49 letters of tablet = 49 kinds of cosmos in every thought of God. 49 interpretations of every cosmos, every interpretation manifested 49 ways. So 49 calls, to each of which there are 49 visions. [Bowie when I’m typing: “Must have been touching close to 94.”] And each visions = 49 elements, except 10th, which is accursed, and has 42. [Doug Adams??] [42=Demiurge in Gen I, assessors in hall of dead, AMA Sterile Mother, Terror and Destruction, Loss, Earth of Malkuth. 10th Aethyr etc.] [Genesis I as Demiurge “evilly” creating imperfection from perfection.]
+[JAE: Implicit call 0 is silence. {DeSalvo 49th call/table?} Total elements would = 1463, 7 x 209, 209 = HDR, The Pearl]
+
+Solar Child develops from the Dew. 
+
+Standing in form of Kneph, 0^0 omniform zero, winged egg from which all positive manifestation comes. 
+
+[VII prologue… samadhi]
+
+Looking into liquid surface of egg, all names of God, even not known to angels, crowd about.
+
+7 senses -> 1 sense, then dissolved into itself in samadhi [sagittarius?]. Declare it all [all sag?] No link to Perdurabo. In samadhi behind veil of Table —Table as “Veil of Infinite”. Arms in form of cross, extending into infinity, with himself as point within it (Nuit/Hadit)—this is the birth of form. 
+Encircled by immense sphere of many-colored bands, sphere of Sephiroth projected in the three dimensions—the birth of death. [Saturn?] [Death as self extended into negative circle/sphere of Nuit instead of positive balanced cross] [JL: This is an excellent summary of NOX formula vs LVX formula. One simply sees BEYOND the limits of the Cross of manifestation into infinity and then emptiness, i.e. Via Negativa, NOX.]
+In center within is glowing sun—the birth of hell, the secret center of self [Liber Aleph]. “One perceives one’s Star as one’s True Self.” (!?!?! whoa dude. Also… VIIº OTO? Star as solar-phallic? WHOA DUDE)
+
+Hell = same root as all covered/concealed stuff [JAE] Crucifixtion as Nuit/Hadit/Heru-Ra-Ha.
+
+It is the virtue of the table to sweep everything away. 
+
+Aethyr:
+	I: Vision = Sag, Rainbow as 7fold projection
+	L: Purity = Luna decreasing in Cancer. Active Luna always purifies, passive evil [active reflects sun not phantoms of night]. 
+	N: Energy = Mars in Scorpio, energy which forms vision (in Taurus would cause action)
+
+Mental analysis causes author to break into dispersion (333). Mental nature of aethyr… letters of Table are all wrong, shadows of shadows. Whoso beholdeth table is light=ARARITA, transmuted = ATh RAIAR, yod girt by suns tending inwardly upon it. RAIAR = Mercury by way of Bet. Kether and Sol are not light, as light is a duplex vibration energized by them and is thereby of their Messenger, Mercury (!!)
+
+Voice of Aethyr is ceaseless thundering of word AUMGN, outside time. Amen continuous. Eye, Ayin, glory so great it cannot be manifested by any positive means (yes… intuitively perceiving this while reading, outside reason).
+
+Table recedes - two angels above him with black wings - and he is shut up into Pastos of Christian Rosenkreutz (7 SIDES = PENTACLE OF BABALON = 49-FOLD TABLE - Demonstrating consistency of imagery through Dee>Rosicrucians>Golden Dawn even if reconstructed by Crowley in his mind/outside time?) Heru-Ra-Ha speaks from egg of blue. Flaming rosy cross before him. I have opened my eye and the universe dissolves. Upper eyelid force, lower eyelid matter, gazing into seven spaces (sephira) there is naught (emptiness). [JAE: This is HGA of Crowley]
+
+[In GD init Crowley found his initiator in Pastos, here place are swapped.]
+
+Horus slays Sobek, crowned with mixed forces of Aquarius, opposite in Zodiac to Leo (sign of Horus). 
+
+Energy of Horus destroys *but must be withdrawn afterward* or he continues to vitalize with his energy (!!!!!!!!!!) (practical psychic defense). (Enterer/Silence - fucking drill it down.) The coherence of the broken matter must be withdrawn.
+
+Harpo on lotus, fortress against water demon. gather yourselves unto me on lotus oh you sons of the morning (luciferians?) Horus chases Osiris into Ammenti and then follows him there so that his reign may be established even in the realms of death.  Death is now Life Triumphant in New Aeon, not by resurrection but by its own essence (?)
+
+Thelemic afterlife: He is eternal and perceives himself the Universe by virtue of categories of Life and Death, which are not real, but subjective conditions of perception like time and space. “Forms of his artistic presentation.”
+
+Osiris was tricked into death by magick and had to overcome it with the formula IAO (Christ, Mithras, resurrecting gods, etc…. similarity to theories of Yugas).
+
+The table reappears and says you’ve translated the vision into reason, this causes new Falls. 
+
+Mark 2:25-26New International Version (NIV)
+25 He answered, “Have you never read what David did when he and his companions were hungry and in need? 26 In the days of Abiathar the high priest, he entered the house of God and ate the consecrated bread, which is lawful only for priests to eat. And he also gave some to his companions.”
+
+i.e. profaning the sacred… connection between SHEW-BREAD and SHEW-STONE of Dee? I.e. storming heaven unlawfully…
+
+https://en.wikipedia.org/wiki/Showbread
+
+This cannot be re-opened except by virtue of ARARITA—i.e. equating and identifying every idea with its opposite, thereby being released from fixed truth and completely withdrawing from Ruach. See Chapters of ARARITA for the method: Thesis > Antithesis > Quintessence > Withdrawal > Erasure in the method itself > Reappearance in form appointed by Adept. 
+
+[i.e. since reason and ratiocination profane the “shrine” of understanding [Binah beyond Da’ath], one must exit the Ruach completely via the ARARITA method before being admitted to the “shrine” of the Table (and hence the 3rd order?) Indeed the Sevenfold seal is a symbol of Babylon, Binah, and Babylon triumphs over Choronzon. {The Dragon?}]
+
+Even though joined to inmost mystery of heaven, one must accomplish sevenfold task of earth, even as thou safest angels from greatest to least. Sense shall be darkened and shrine re-veiled after you take back.
+
+If your analytical methods cannot destroy Illusion, try harder, motherfucker. 
+
+SatChitAnanda, 4 powers of Sphinx. Being/Knowledge/Bliss, Will/Courage/Wisdom/Silence. [7 = ARARITA??] That which, being all these, is greater than all these [is this the secret 8th head of the Beast?]
+
+Sorrow upon seeing world as it is (Dukkha, Binah).
+
+“The Vision and the Voice stands alone in the world’s spiritual literature as a singularly elegant fusion of religious doctrine. It represents a kind of calculus of religious concepts, an advanced mathematics of magic and mysticism, both subsuming and overthrowing the world’s religious symbolism.”
+
+JAE says this is the true promise of the Lord of the New Aeon: “Behold! Where are now the darkness and the terror and the lamentation? For ye are born into the new Aeon; ye shall not suffer death. Bind up your girdles of gold! Wreath yourselves with garlands of my unfading flowers! In the nights we will dance together, and in the morning we will go forth to war; for, as my Father liveth that was dead, so do I live and shall never die.”
+
+[At night he is shown a vision of temple that is a mix of Lhasa and Abu-Jimmel {possibly Jain temple on Mt. Abu in India}.]
+[Note: I saw nearby/similar Jain temples in Rajasthan in 2004: https://www.google.com/search?q=jain+temple+mt.+abu&biw=1197&bih=734&tbm=isch&tbo=u&source=univ&sa=X&ved=0CB0QsARqFQoTCPSApJeh6MYCFVUviAodfYcB9g. South of Jodhpur]
+
+
+ASP
+
+The 21st Aethyr, ASP.
+Kether in Yetzirah.
+“Ether. (The Hierophant prepares the Candidate.) The Vision of the Ineluctable Destiny. <Macroprosopus.>)”
+Taurus/Gemini/Cancer.
+Hierophant/Lovers/Chariot.
+{However, Breeze says it should be Leo - Gemini - Cancer, Teth Zayin Vau, 22.}
+
+Comment: This seems to be the Vision of God face to face that is the necessary ordeal for him who would pass the Abyss, as it were. A commission to be the prophet of the Aeon arising is given to the Seer. The God is the Hierophant in the Ceremony of Magister Templi.
+
+ASP = 25, YHVD, God of Geburah of Briah (!) = ChIVA, The Beast. [JL: And VVVVV/Pentagram] Leo, the Lion of Beast Atu XI, replaces Taurus, Osiris, and Virgo the Virgin/Lonely One.
+
+[JAE: ASP = 141.]
+
+[JAE: Crowley thinks 21, 20, 19 aethyrs = Hierophant, Hierus, Hegemon of his 8=3 initiation [as 23-24 aethyrs are the Kerubs at his initiation] 
+[Sidereal, not tropical, Zodiac = the body of Nuit]
+
+[Moon in Sidereal Gemini = Gemini/twin themes]
+
+[JAE: Yammering mind made still = Gateway to Briah.]
+
+A mighty wind of absolute emptiness.  Behind it flashes the avenue pf pillars, throne on sphinxes of black marble, that is way of time in temple of destiny (Saturn/Binah). From the invisible on the throne all desolation proceeds (necessity/fate). 
+
+[Throne = Briah, Figure = Atziluthic. Desolation in Latin = solus, “alone”]
+
+[Relation between 30 aethyrs and 50 gates??? Here’s a fascinating Bill Hedrick essay: http://hermetic.com/heidrick/50gates.html] [Gunther quotes Zohar Pritzher ed vol 1 p 97 as Y opening H (womb) through 50 gates of binah]
+
+Aethyric imagery past this point is beyond good/evil duality, fundamental logic, being obliged to think of state of mind, or individual, being true to itself. 
+
+Cabalistic communication by taste: MEDONEStL UIEOEMThERIONS. Crowley: “The Earth is sick of love; with disease and death is she sick… the natural lust, fierce as it is, is not enough; virgins, boys, women (make man) sick, weak of semen, and sick. The earth shall be cured of her sickness by true Art-of-Sun, and thine own pleasure(s), oh Thou …, shall abolish the world’s woe, and bring on the Age of Righteousness.” [Seminal retention? Deeper meaning of semen? VITRIOL? Logos?]
+
+[Colors of Binah in Briah and Atziluth. Akasha-tattwa. Progression of nada sounds]
+
+There is no warmth in destiny. It is intolerable to see mere mechanism of life. 
+
+Nuit/Rahoorkhuit. Pillars Binah, throne Tiphareth. RHK alive in womb of Babalon. 
+
+Before beginning: :et me behold my countenance in abyss (beginning Upanishads) 
+
+[Journey to the West: 4 visits to the Abyss. With Tibetans. WTF. https://www.youtube.com/watch?v=5G94CuUs21U]
+
+[The Taishang dongyuan shenzhou jing (simplified Chinese: 太上洞渊神咒经; traditional Chinese: 太上洞淵神咒經; pinyin:Tàishàng dòngyuān shénzhòu jīng; Wade–Giles: T'ai-shang shen-chou ching; literally: "Most High Cavernous Abyss Divine Spells Scripture"), https://en.wikipedia.org/wiki/Divine_Incantations_Scripture
+
+https://books.google.com/books?id=R3Sp6TfzhpIC&pg=PA375&lpg=PA375&dq=Scripture+of+the+Divine+Spells+of+the+Cavernous+Abyss&source=bl&ots=490dmgW7cH&sig=s6-CtkMAZJnSeXvENAEfiT2LsAM&hl=en&sa=X&ved=0CCwQ6AEwAmoVChMIh4a4j6noxgIVCU6ICh3WeAMG#v=onepage&q=Scripture%20of%20the%20Divine%20Spells%20of%20the%20Cavernous%20Abyss&f=false
+
+http://journals.cambridge.org/action/displayAbstract?fromPage=online&aid=788304
+
+Levi’s image of two countenances: https://36.media.tumblr.com/3c0467a7162d59fe577ba0e566c1f2c3/tumblr_mwwdx4APq51sap3sxo3_400.jpg
+https://36.media.tumblr.com/3c0467a7162d59fe577ba0e566c1f2c3/tumblr_mwwdx4APq51sap3sxo3_400.jpg
+
+3rd eye of Shiva must not open because it will destroy all because of foulness of vision; so 2 eyes open through the aeon [dualism perpetuates creation]. [QBLH: Most Holy Ancient One has one eye, Microprosopus, 2.]. See 22nd Aethyr: An adept (as in prior, tomb of CR) must cut off eyelids so he can behold and destroy. [Eye of AA] [Most High, IAIDA?]
+
+Minor elemental weapon of air, dagger, useless against force and matter. [dagger of obligation of 5=6 grade, prior Aethyr, sealed prior to seeing face of father and brother who was mystic foundation of order. 7fold tempering of soul, ordeals distinctive to each person. (KT degree York Rite, 7 years? Tempering done in 7 chakras.]
+
+VVVVV = Strength of five bulls. But shall not avail.
+
+[JAE: VVVVV as “Supernal ONE” who had founded AA and written holy books]
+
+I know not = No = LA, 31 / Not, AIN, 61. [“Nothing is a secret key of this law. Sixty-one the Jews call it; I call it eight, eighty, four hundred & eighteen.”] The endless not.
+
+Dagger 7 x 4 = 28, ∑1-7, 4 x 7, perfect. Nothing changes = horror. 
+
+Throned figure: The Great (vast) Countenance, ARIK ANPIN, 231+191=422 [4 x 22 paths in 4 worlds]=8, Mercury, Mayan
+
+This is the god of Unity, the One True God—and there is nothing but this “abomination of desolation.” 
+
+“19. That stele they shall call the Abomination of Desolation; count well its name, & it shall be to you as 718.” [note .718 subfactorials in liber 500] 
+
+Daniel 11:31: “And arms shall stand on his part, and they shall pollute the sanctuary of strength, and shall take away the daily sacrifice, and they shall place the abomination that maketh desolate.” [coming of antichrist/salvation of israel]
+
+Daniel 12:11 And from the time that the daily sacrifice shall be taken away, and the abomination that maketh desolate set up, there shall be a thousand two hundred and ninety days.
+
+Matthew 24:15 When ye therefore shall see the abomination of desolation, spoken of by Daniel the prophet, stand in the holy place, (whoso readeth, let him understand:)
+
+Mark 13:14 14 But when ye shall see the abomination of desolation, spoken of by Daniel the prophet, standing where it ought not, (let him that readeth understand,) then let them that be in Judaea flee to the mountains:
+
+standing where it ought not = 0, not
+
+https://en.wikipedia.org/wiki/Abomination_of_desolation
+
+“motionless abomination” (see Aethyr). Designation of Jupiter?
+
+According to 1 Maccabees 1:54, the abomination was erected on the altar of burnt offering [ Qliphoth ]
+
+1 Maccabees[edit]
+According to 1 Maccabees 1:54, the abomination was erected on the altar of burnt offering.[4]
+1 Maccabees 1:54 "Now the fifteenth day of the month Casleu, in the hundred forty and fifth year, they set up the abomination of desolation upon the altar, and builded idol altars throughout the cities of Juda on every side;"
+1 Maccabees 6:7 "Also that they had pulled down the abomination, which he had set up upon the altar in Jerusalem, and that they had compassed about the sanctuary with high walls, as before, and his city Bethsura."
+
+The rabbinical consensus is that the expression refers to the desecration of the Second Temple (Herod's Temple) by the erection of a Zeus statue in its sacred precincts byAntiochus IV Epiphanes.[6][7] Some rabbis, however, see in it an allusion to Manasseh, who is reported to have set up "a carved image … in the house of God".[8][9]
+Church Father John Chrysostom understood this to refer to the armies that surrounded Jerusalem and the factions fighting within it which preceded the destruction of the city.[10]
+
+The 1 Maccabees usage of the term points to the actions of Antiochus IV Epiphanes in the mid-2nd century BC. Specifically, he set up an altar to Zeus in the Second Temple in Jerusalem, and sacrificed swine on it around the year 167 BC.[citation needed] Many modern scholars believe that Daniel 9:27, 11:31 and 12:11 are examples of vaticinium ex eventu (prophecies after the event) relating to Antiochus.[11][12]
+Many modern Biblical scholars[13] conclude that Matthew 24:15 and Mark 13:14 are prophecies after the event about the siege of Jerusalem in AD 70 by the Roman generalTitus.[14] Some scholars, including Hermann Detering,[15] see these verses as a vaticinium ex eventu about Emperor Hadrian's attempt to install the statue of Jupiter Capitolinus on the site of the ruined Jewish Temple in Jerusalem leading to the Bar Kokhba revolt of 132-135 AD.
+
+
+Preterists believe that Jesus quoted this prophecy in Mark 13:14 as referring to an event in his 1st century disciples' immediate future, such as the siege of Jerusalem in 70 AD.[16][17]
+One commentator relates the prophecy to the actions of Caligula c. 40 AD when he ordered that a golden statue depicting himself as Zeus incarnate be set up in the Temple in Jerusalem.[18] This prospect however, never came to fruition since he was assassinated in 41 AD along with his wife and daughter.[19]
+Peter Bolt, head of New Testament at Moore Theological College, believes that the abomination of desolation in Mark 13 refers to the crucifixion of the Son of God; in other words, Jesus is referring to his own impending death.[20]
+
+
+If Abomination of Desolation = Zeus/Io Pater statue in the Second Temple = Chesed or Demiurge. [As here seen.] Also “changeless abomination”] (changeless nature of imagery. Also the demiurgic figure is seen on a throne behind pillars with sphinxes, which doesn’t *really* resemble the second temple, but is vaguely suggestive of a similar setup
+
+
+0=2?
+
+From this figure proceed the elements (again 4, chesed, and demiurgos 718.) But why Stele?
+
+“Only those who accept nothing from me can bring anything to me.”
+
+The muttering heard from the idol is the APE OF THOTH; the being on throne has not spoken at all.  
+
+KETHER, silence -> THOTH, false speech [as not silence]
+			 APE OF THOTH, caricature/Qliphoth of false speech. -> According to the Ape, his speech is true, because he falsifies falsehood (but wouldn’t it rather be progressive degeneration?)
+
+Ape of Thoth = babbling mind that gets in way of the Silence of the Most High [Bet, Mayan, magician in house of god]
+
+[JAE: Truth = AMTh. Whatsoever of truth that gains voice is a lie, as dual]
+
+***From now on, all statements in Aethyrs speak the language of the Neschemah and not Ruach [we also transition into Briah in next aethyr], meaning that they are paradoxical statements, and must be reverse and reversed again and again, and are true and false at once [NEITHER-NEITHER LANGUAGE]
+
+Signs up to 7=4 but no further he has them not. This is beyond Adeptus Exemptus and Crowley’s then extent of initiation.
+
+So he was wrong in Wake World to suggest that an MT could pass to higher temples. Distances between grades increase.
+
+Angel: Seeing this “God” (the man behind the curtain) is the Ordeal X—“the horror and loneliness of the First” (Kether), now he can go into the world as the prophet of new Aeon, whether Kether is Not [i.e. 0=2, Kether is the child of any marriage of one particular Hadit with one particular aspect of Nuit, and there are therefore infinite Kethers, and all marriages also produce a twin: H+Y=H+V. Third Being/Third Mind (Kether) and also an ecstasy or dissolution produced by the same event. Magical and Mystical results of act of Love Under Will. 
+
+The voice of Ape of Thoth is pulse of heart and laboring of breast.
+
+KHR
+
+The 20th Aethyr, KHR.
+Malkuth in Briah.
+“The path of Kaph (Atu X). The Hierus prepares the Candidate. The Vision of the Wheel of Fortune. The Three Energies of the Universe. <Path of Daleth and Adonai>.”
+Fire/Air/Gemini
+Aeon/Fool/Lovers
+
+Comment: “A guide is given to the Seer, his Holy Guardian Angel. And this is attained by a mastery of the Universe conceived as a wheel. The Hierus in the Ceremony of the Magister Templi.”
+
+[jae: cabalists writing of briah similar to hindus writing of samadhi]
+
+Jupiter. Chashmalim (choir). Gather into Wheel of Fortune = 49 wheels set at different angles composing a sphere. When rays from 2 wheels meet, blinding flash of glory. [ 49 =table. 7 is inferiors, feminine perfection. 3 x 49 = 147, the four names of god used in LBRP(!) 4fold regimen of YHVH: 3 x 7 x 7 [Why 3? Gunas? Dinah? 3 of four elements with Earth implied?]
+
+[Trumpets cause all things to manifest at once = Malkuth, 10; 10,000 things {10 x 1,000 or 10^3}. 49 is also the value of “the Lamb.” HTLH {but this includes initial Heh… uhh?}]
+
+[JAE: KHR = 225. Same as Latin “Facito Voluntatem Tuam,” “Do what the wilt,” and “Transerat a me calyx itse,” take this cup from me. (Cup?). Also child and I am in greek. 225 is also 15^2.]
+
+[Wheel: Purusha and Prakrit, seer and seen. Wheel: I am the Magician and the Exorcist. I am the axle of the wheel, and the cube in the circle. "Come unto me" is a foolish word: for it is I that go.” Kaph wheel, yod axle. This is a Briatic expression of prakriti, Nature.]
+
+Spun by hand (Yod, Kaph, 20, Jupiter), Spermatozoon, Hadit… KAph = peh + kaph = yod * yod, Kaph and Peh are Kteis and Phallus whose union releases Yod. Universe set into motion by Love Under Will. “By “the wheel spinning in the spire” is meant the manifestation of magical force, the spermatozoon in the conical phallus.” (Book of Lies Cap 43)
+
+You = Kether = Primal turnings [14º SR ring—Yod in triangle, or hand and three guns of wheel. Yod also axle, meaning it is turned by axle inside us.]
+
+Jovial God. 
+
+Proper beasts of Wheel: Rim is vivid emerald snake. Center is scarlet heart. Scarlet of heart and green of snake are more vivid than blinding white brilliance of Wheel (higher key scale?) Liber LXV imagery—3:17-18. At the top is Agnus Dei, lamb and flag; also we have beasts: wolf, raven. Lamb is brightest—it is the Great Deceiver. [It seems pure and white, so therefore distracts people from getting to center of wheel.] 
+
+	WOLF/NEPHESCH/MERCURY: Betrays greedy and treacherous (Lust of flesh)
+	RAVEN/RUACH/SULPHUR: Betrays melancholy and dishonest [No hostile force is hurtful… enemy is always oneself.] (Lust of mind) (Ravens of Dispersion = A’arab Zareq = Qlipha of Hod)
+	LAMB/NESCHAMAH/SALT: Deceives the very elect. (Simulations of pure prompting of the soul)
+
+Lamb as drunk on blood of saints, the Chief of the lying spirits. Feasts on the sentimental type of aspirant (sentiment as “vile parody” of Neschamah, polluted by least virile elements of Nephesch [!!!!], leading to corruption of sin and vicarious atonement doctrines) 
+
+[These trials: “There is a word to say about the Hierophantic task. Behold! there are three ordeals in one, and it may be given in three ways. The gross must pass through fire; let the fine be tried in intellect, and the lofty chosen ones in the highest. Thus ye have star & star, system & system; let not one know well the other! “]
+
+Overcome by ABRAHADABRA and ARARITA and NOX (210). X in O represents the reduction of the Dyad to Unity by Love under Will, and thence by 0 to dissolution in Nuit., destroying all positive symbols so one can unify in Nuit. Nuit is the True Wheel. Unity consciousness above abyss. [lightning in Atu in Thoth]
+
+Liquid flame of pale gold (Ut). (32º SR?) Solar dieties as springing from the jupiter of the wheel/hand.  More change/stability paradox. Dance of Shiva. 
+
+[More Crowley distancing by hovering in Yetzirah so he can write.]
+
+“Angel is I” so makes hard to grasp. I cannot get into I. Therefore mahasatipattha, an a-centric meditation process, must be undertaken before invocations of HGA. 
+
+K&C of HGA. Crowley’s True Will is to lead men to K&C. He discovered this by Sammasati while in China:
+
+In the Noble Eightfold Path, the practice leading to the complete cessation of Unsatisfactoriness, Sammasati is counted as the second factor of the Samadhi Section, the 'Higher Mental Training'. The usual definition of sammasati given in the Discourses is as follows:
+"Bhikkhus. What is sammasati? This is call sammasati, namely, that a bhikkhu in this Dhamma Vinaya:
+"1. Contemplates the body in the body with effort, sampajañña and sati, eradicating covetousness and distress with regard to the world;[1]
+"2. Contemplates feeling in feelings with effort, sampajañña and sati, eradicating covetousness and distress with regard to the world;
+"3. Contemplates the mind in the mind with effort, sampajañña and sati, eradicating covetousness and distress with regard to the world;
+"4. Contemplates dhammas[2] in dhammas with effort, sampajañña and sati, eradicating covetousness and distress with regard to the world." [D.II.313]
+    Another definition, which appears in the Abhidhamma texts, is as follows:
+"What is sammasati? Sati means to bear in mind or bring to mind. Sati is the state of recollecting, the state of remembering, the state of non-fading, the state of non-forgetting. Sati means the sati that is a Spiritual Faculty, the sati that is a Spiritual Power, Sammasati, the Sati that is an Enlightenment Factor, that which is a Path Factor and that which is related to the Path. This is what is called sammasati." [Vbh.105, 286]
+    Sammasati, as defined in the Discourses, is a synonym for the principles of Dhamma known as the Four Satipatthana. The four elements of this group have the abbreviated names of:
+	1.	Kayanupassana (contemplation or mindfulness of the body);
+	2.	Vedananupassana (contemplation or mindfulness of feelings);
+	3.	Cittanupassana (contemplation or mindfulness of mind);
+	4.	Dhammanupassana (contemplation or mindfulness of dhammas)
+
+JAE: Walking up skandas:
+
+Rupa / form				Malkuth
+Vedana / sensation			Yesod
+Sanna / perception			Hod
+Sankhara / tendency-impulse		Netzach
+Vinnana / consciousness		Tiphareth
+
+Mahasatipatthana: Acknowledge name and form of object. observe sensory impression behind seeming actuality of object; perception behind sensation; inherent tendency of consciousness to have perception; etc. 
+
+Speech in Silence, Voice of Silence (chasmal)
+
+eremite of nuit, apostle of hadit, warrior of ra hour khu.
+
+*My sacraments are vigorous food and divine madness. 
+
+Pentagram of VVVVV (combine with Wake World stuff)
+
+Via Vita Veritus Victoria Virtus - way, life, truth, victory, virtue = 28, ∑7. first 8 numbers = cheth =418
+{note from previous aethyr, the dagger: Dagger 7 x 4 = 28, ∑1-7, 4 x 7, perfect. Nothing changes = horror. }
+
+pent of v^v fades, replaced by black crosses (tables?) in a network.
+
+The 19th Aethyr, POP.
+Yesod in Briah.
+“The path of Gimel. (The Hegemon between the Pillars. Preliminary: The Vision of the Unguided Universe.) <Path of Samekh (with Lamed and Gimel).>
+Cancer/Libra/Cancer
+Chariot/Libra/Chariot
+
+Comment: “Now cometh forth the Angel who giveth instruction, in the lowest form. The Hegemony in the Ceremony of Magister Templi which the Seer is about to undergo.”
+
+[JAE: Lunar, with Venus-Libra overtones—Yesod in Briah]
+
+POP = 48. hga as isis-urania/hegemon, equilibriating all symbols in sphere of candidate. woman bearing seed of life and holy cup in balance. again black cross (table). alphabet of daggers = analyze every idea! worship all things, but keep separate the planes. impure sinners = thoughts unsimplified and running one after another.  “Worship each thing in itself without inventing ideas” (tantra)  [Black Cross also = Cross of Hegemon in GD, i.e. HGA as Hegemon of S.’.S.’. Hegemon also=Maat=Libra, and stationed in Yesod. But cross black -> gold, lifted to Tiphareth. Dagger = Air = 2-9 = Yesod, but in Yetzirah in early part of Aethyr. IN surrounding Aethyrs: Kether=Hierophant, Hierus=Malkuth, Hegemon=Yesod.]
+
+Many elements of this Aethyr correspond to G.D. 2=9 ceremony. 
+
+[POP = 230, with his chariots, and they slew]
+
+golden six-squared cross of Tiphareth is portal. 
+
+hermit gives entry to aethyr of “chariots of fire”. every man for himself. 
+(inversion of gita?) chariot riders stabbed in back by own charioteers! tree of life grown on blood: useless ideas unless organized by understanding.  This is nature of intellect, with every participant a thought!
+
+Dragon of Yesod, Libra, Venus
+
+sebek as saturn the devourer of the material world
+
+exempt adept transcends devouring sober nature of time by becoming mt. 
+
+hga awaits eternally the address of her charge. is also the Arch-Harlot  (ever unto me). Those who worship love and light… but love and light shall be put out. the destruction of the universe is the beginning of initiation to MT.  [HGA as Samekh, opening up from Yesod, then Gimel. Moons on either side as in word POP. Telesma of POP. Also woman clothed with sun from Apocalypse. 12:1. Aspirant as Odysseus before both Circe and Penelope. Embrace BOTH extreme as well as their reconciliaton.]
+
+On the mouth of the HGA’s kiss is IHS [75, Lucifer, Nuit, but doubtful. OR IHS = Yod Heh Shin, Mother letters, 315 = 5 x 63]
+Latin: In man is health / The highest is the likeness of man / God is the image of man i.e. = Nothing is of any importance but man and there is no hope but in man. God is Humanity.
+
+Samekh (HGA) intersecting Peh (clashing warriors). 
+
+This Angel is of the 14TH KEY and 8TH KEYS (Tarot keys not Aethyrs). {Art and Adjustment}. Warden of POP. Angel reaches to crown and is ALSO the bigh priestess. 
+Aspiration to higher and love of unknown. Blind ache in heart. minister of sacrament of pain. fire and water of 0=0. daughter of Bet and priestess of silver star (S.’.S.’.). So Hegemon of SS. Malkuth is Binah. The holy night that succeeds the light. 
+
+Book of High Priestess open to page with Holy Table of 12 Squares, radiating blaze of light: The woman is not the fish of all men. [She is not attained by all men?]
+
+Greek, ICHTHYS - (Jesus fish/ vesicle) (traditionally a notariqon of “Iesous Christos Theou Uios Soter”, but here stated it is not this). 
+
+“This explanation is given among others by Augustine in his Civitate Dei,[7] where he notes that the generating sentence " Ἰησοῦς Χρειστὸς [sic] Θεοῦ Υἱὸς Σωτήρ" has 27 letters, i.e. 3 x 3 x 3, which in that age indicated power. (This suggestion is obviously spurious, resulting from Augustine's ignorance of Greek.) [8] Augustine quotes also an ancient text from the Sibylline oracles[9] whose verses are an acrostic of the generating sentence.”
+
+
+[JL: Fish here also = Pisces, aeon of Pisces.]
+
+JAE and Crowley tie themselves in knots here, and Crowley never found a solution. The numerical explanation may be as simple as Ἰησοῦς Χρειστὸς Θεοῦ Υἱὸς Σωτήρ = 27 letters = 3x3x3, i.e. the Christic doctrine of Augustine in City of God is identified as of Choronzom.
+
+The City of God [aka City of God Against the Pagans —note the similarities to earlier references to the Abomination of Desolation is Zeus/Io Pater in the 2nd Temple] was written as a political apology for Christianity, saying it did not destroy (disperse) Rome, and posits eternal warfare between God and the Devil, and that the Catholic Church is aligned with God, who uses it and allied countries to fight the Devil. 
+
+City of God Book 18, Chapter 23:
+
+Of the Erythræan Sibyl, Who is Known to Have Sung Many Things About Christ More Plainly Than the Other Sibyls.[1]
+Some say the Erythræan sibyl prophesied at this time. Now Varro declares there were many sibyls, and not merely one. This sibyl of Erythræ certainly wrote some things concerning Christ which are quite manifest, and we first read them in the Latin tongue in verses of bad Latin, and unrhythmical, through the unskillfulness, as we afterwards learned, of some interpreter unknown to me. For Flaccianus, a very famous man, who was also a proconsul, a man of most ready eloquence and much learning, when we were speaking about Christ, produced a Greek manuscript, saying that it was the prophecies of the Erythræan sibyl, in which he pointed out a certain passage which had the initial letters of the lines so arranged that these words could be read in them: ᾽Ιησοῦς Χριστος Θεοῦ υιὸς σωτηρ, which means, “Jesus Christ the Son of God, the Saviour.” 
+
+[Flaccanius is unknown outside of Augustine, though is mentioned elsewhere in Aug as criticizing fortune-telling: https://books.google.com/books?id=ReU2M8cLtGcC&pg=PA1200&lpg=PA1200&dq=Flaccianus&source=bl&ots=wkAsluyKGc&sig=OyZvmGZKjPTmBaJd4Sb1oHTwOII&hl=en&sa=X&ved=0CC8Q6AEwAmoVChMIsqycntDqxgIVzSmICh0xNgW-#v=onepage&q=Flaccianus&f=false]
+And these verses, of which the initial letters yield that meaning, contain what follows as translated by some one into Latin in good rhythm:
+Ι Judgment shall moisten the earth with the sweat of its standard, 
+Η Ever enduring, behold the King shall come through the ages, 
+Σ Sent to be here in the flesh, and Judge at the last of the world. 
+Ο O God, the believing and faithless alike shall behold Thee 
+Υ Uplifted with saints, when at last the ages are ended. 
+Σ Seated before Him are souls in the flesh for His judgment.  Χ Hid in thick vapors, the while desolate lieth the earth. 
+Ρ Rejected by men are the idols and long hidden treasures; 
+Ε Earth is consumed by the fire, and it searcheth the ocean and heaven; 
+Ι Issuing forth, it destroyeth the terrible portals of hell. 
+Σ Saints in their body and soul freedom and light shall inherit; 
+Τ Those who are guilty shall burn in fire and brimstone for ever. 
+Ο Occult actions revealing, each one shall publish his secrets; 
+Σ Secrets of every man’s heart God shall reveal in the light.  Θ Then shall be weeping and wailing, yea, and gnashing of teeth; 
+Ε Eclipsed is the sun [Yesod-Tiphareth=Samekh], and silenced the stars in their chorus. 
+Ο Over and gone is the splendor of moonlight [Yesod], melted the heaven, 
+Υ Uplifted by Him are the valleys, and cast down the mountains.  Υ Utterly gone among men are distinctions of lofty and lowly. 
+Ι Into the plains rush the hills, the skies and oceans are mingled. 
+Ο Oh, what an end of all things! earth broken in pieces shall perish; 
+Σ .... Swelling together at once shall the waters and flames flow in rivers.  Σ Sounding the archangel’s trumpet shall peal down from heaven, 
+Ω Over the wicked who groan in their guilt and their manifold sorrows. 
+Τ Trembling, the earth shall be opened, revealing chaos and hell. 
+Η Every king before God shall stand in that day to be judged. 
+Ρ Rivers of fire and brimstone shall fall from the heavens.
+
+[JL NOTE: This bears extreme similarity to the English text of the 19th Call:
+
+THE CALL OR KEY OF THE THIRTY AETHYRS
+
+O YE Heavens which dwell in the first Air, yea are mighty in the parts of 
+the Earth, and execute the Judgment of the Highest! Unto you it is said: 
+Behold the Face of your God, the beginning of Comfort, whose eyes are the 
+brightness of the Heavens, which provided you for the Government of the Earth,
+and her unspeakable variety, furnishing you with a power of understanding to 
+dispose all things according to the Providence of Him that sitteth on 
+the Holy Throne, and rose up in the Beginning, saying: The Earth, let her be 
+governed by her parts, and let there be Division in her, that the glory of her
+may be always drunken, and vexed in itself. Her course, let it run with the 
+Heavens; and as an handmaid let her serve them. One season, let it confound 
+another, and let there be no creature upon or within her the same. All her 
+members, let them differ in their qualities, and let there be no one Creature 
+equal with another. The reasonable Creatures of the Earth, and Men, let them vex and weed out one another; and their dwelling-places, let them forget their Names. The work of man and his pomp, let them be defaced. His buildings, let them become Caves for the beasts of the Field! Confound her understanding with darkness! For why? it repenteth me that I have made Man. One while let her be known, and another while a stranger: because she is the bed of an Harlot, and the dwelling-place of him that is fallen.
+
+O ye Heavens, arise! The lower heavens beneath you, let them serve you! 
+Govern those that govern! Cast down such as fall. Bring forth with those 
+that increase, and destroy the rotten. No place let it remain in one number.
+Add and diminish until the stars be numbered. Arise! Move! and appear before the Covenant of His mouth, which He hath sworn unto us in His Justice. Open the Mysteries of your Creation, and make us partakers of THE UNDEFILED KNOWLEDGE.]
+
+And, of course, 3^3 = Coronzom, who is *overcome* past ZAX, making this a “blessing”—that everything should be as it is below the abyss, though seen as perfection from the Supernal world. Also not the Erytherean sibil = Binah or Babalon. 
+
+In these Latin verses the meaning of the Greek is correctly given, although not in the exact order of the lines as connected with the initial letters; for in three of them, the fifth, eighteenth, and nineteenth, where the Greek letter Υ occurs, Latin words could not be found beginning with the corresponding letter, and yielding a suitable meaning. So that, if we note down together the initial letters of all the lines in our Latin translation except those three in which we retain the letter Υ in the proper place, they will express in five Greek words this meaning, “Jesus Christ the Son of God, the Saviour.” And the verses are twenty-seven, which is the cube of three. For three times three are nine; and nine itself, if tripled, so as to rise from the superficial square to the cube, comes to twenty-seven. But if you join the initial letters of these five Greek words, ᾽Ιησοῦς Χριστος Θεοῦ υἰὸς σωτήρ, which mean, “Jesus Christ the Son of God, the Saviour,” they will make the word ἰχδὺς, that is, “fish,” in which word Christ is mystically understood, because He was able to live, that is, to exist, without sin in the abyss of this mortality as in the depth of waters.[2]
+[Abyss, waters of Binah = Christ as fish within Binah]
+https://en.wikipedia.org/wiki/Sibyl = frenzied women w ptsd = Sumerian temple whores, Babalon
+
+[Cumaean Sibyl[edit]
+Main article: Cumaean Sibyl
+The sibyl who most concerned the Romans was the Cumaean Sibyl, located near the Greek city of Naples, whom Virgil's Aeneas consults before his descent to the lower world (Aeneid book VI: 10). Burkert notes (1985, p 117) that the conquest of Cumae by the Oscans in the 5th century destroyed the tradition, but provides a terminus ante quem for a Cumaean sibyl. It was she who supposedly sold to Tarquinius Superbus, the last king of Rome, the original Sibylline books. Christians were especially impressed with the Cumaean Sibyl, for in Virgil's Fourth Eclogue she foretells the coming of a savior – possibly a flattering reference to the poet's patron – whom Christians identified as Jesus.[18][19][20]]
+
+But this sibyl, whether she is the Erythræan, or, as some rather believe, the Cumæan, in her whole poem, of which this is a very small portion, not only has nothing that can relate to the worship of the false or feigned gods, but rather speaks against them and their worshippers in such a way that we might even think she ought to be reckoned among those who belong to the city of God. Lactantius also inserted in his work the prophecies about Christ of a certain sibyl, he does not say which. But I have thought fit to combine in a single extract, which may seem long, what he has set down in many short quotations. She says, “Afterward He shall come into the injurious hands of the unbelieving, and they will give God buffets with profane hands, and with impure mouth will spit out envenomed spittle; but He will with simplicity yield His holy back to stripes. And He will hold His peace when struck with the fist, that no one may find out what word, or whence, He comes to speak to hell; and He shall be crowned with a crown of thorns. And they gave Him gall for meat, and vinegar for His thirst: they will spread this table of inhospitality. For thou thyself, being foolish, hast not understood thy God, deluding the minds of mortals, but hast both crowned Him with thorns and mingled for Him bitter gall. But the veil of the temple shall be rent; and at midday it shall be darker than night for three hours. And He shall die the death, taking sleep for three days; and then returning from hell, He first shall come to the light, the beginning of the resurrection being shown to the recalled.” Lactantius made use of these sibylline testimonies, introducing them bit by bit in the course of his discussion as the things he intended to prove seemed to require, and we have set them down in one connected series, uninterrupted by comment, only taking care to mark them by capitals, if only the transcribers do not neglect to preserve them hereafter. Some writers, indeed, say that the Erythræan sibyl was not in the time of Romulus, but of the Trojan war.
+
+
+"The City of God Against the Pagans" by St. Augustine is a cornerstone of Western thought, in which the critical Catholic theologist decries the number of teenage Wiccans with black nail polish, pentagram necklaces and bo-staffs that are always playing "Magic: The Gathering" in front of the Cinnabon in the mall food court by his house. It was followed three years later by a less popular work, "The City of God Against the Furries."
+
+but = 1219, yvtzr brashith, Formator eius quod                   YVTzR BRAShYTh
+
+  in principiis
+
+12 Hanged man 19 Aeon
+
+nun and qoph, water, binah, waters of birth
+
+initials of five greek, five egyptian dieties - tremendous power : Isis/Cneph/Thoth/Uramoth/Sebek; I/Ch/Themis/Uranus/Selene. All forms of Binah. Create magical formula as in Book 4 part 3.  These also represent Sephirah 2, 3, 4, 5, 6. {JAE: Nobody’s got the right solution}
+
+hga and self crucified as if face to face - i believe this is the 6º oto grip. [Also 8=3 sign, Mater Triumphans]
+
+No unity—Unity can only be accomplished when impulse comes from above. [20th aethyr]
+
+OISIRIS WAS BLACK GOD = [Duat] Osiris is of the nature of Binah, black, and he must be annihilated to attain Binah. Love of Binah is that of the Queen Scorpion who devours her mate. Female devouring the male after sex is union with Binah! “One must not be the child but the Mother” — i.e. the Osiris formula is over, Crowley must proceed from LVX to NOX, the Pathway of Night.
+
+Note: Realized that the I Ching, being the Book of Changes and therefore of Chokmah, and above the Abyss, speaks in Supernal language—this is why it never seems to give a direct answer. It answers non-dually.
+
+The 18th Aethyr, ZEN.
+Hod in Briah.
+“Tiphareth. (The King’s Chamber. The Vision of the Holy Guardian Angel.) The Instruction concerning the Obtaining of the Vision and the Voice of the 30 Aethyrs. The Preparation of the Candidate.”
+Leo/Virgo/Scorpio
+Lust/Hermit/Death
+
+Comment: “The Vault of preparation for the Ceremony of Magister Templi. The Veil is the Crucifixion, symbol of the dead Aeon. The first ordeal is undergone.”
+
+[JL: “Zen” does indeed seem to be a fitting description of Hod in Briah?]
+
+ZEN = 69 = ABVS, manger/stable/enclosure. HGA prepares candidate below any normal sphere of consciousness. 
+
+[ZEN = 65, HGA/LXV, Adonai, temple, silence] Compare Hod in Atziluth, Aethyr 8, for KC HGA
+
+Combines elements of the 5=6 GD and 2=9 A.’.A.’. initiations. [Vault of Adepti/King’s Chamber—my ritual in Hemet. Masonic Chamber of Reflection for 3rd Order.]
+
+If you bring in the implements of crucifixion, they will be used on you.
+Nails = 3 desires (vau vau vau 666) = desire for light, life, love [gunther: LLLL at base of pyramid of aspirant] [This applies only to this step, not to Man of Earth]
+Thorns = Thoughts
+Whips = Regrets
+Wine = Unsteadiness in ecstasy (See Liber AL)
+Spear = Attachment
+
+Free self from all attachment, desires, mind. (Buddhism)
+
+Christ as Bat, thieves as two children (ATU XIX? Inversion of Sun. Qlipha of Resh/Tiphareth?) Night full of hideous things and howling (Goetia?) If you change so much as a letter the holy word is blasphemed (fill/kill). This is the “empty shell” of mystery of ZEN [JL: Indeed - the Qlipha of Resh or Tiphareth in Briah]
+
+
+Reference to Exodus 33:22-23: Many Adepts’s eyes have failed before the glory of thy countenance
+“22 And it shall come to pass, while my glory passeth by, that I will put thee in a clift of the rock, and will cover thee with my hand while I pass by:
+23 And I will take away mine hand, and thou shalt see my back parts: but my face shall not be seen.”
+Portal signs given. 72 whirling signs of fiery light (Shemham - related to “Howlings” mentioned before as being attributed to the Goetia)
+
+Parting of Veil = Opening Briah
+
+Latin QBL Simplex, 72 = ABIEGNUS. also IGNIS DEI and VACUUM
+
+72 = A’aB, secret nature of Atziluth. [Meatus/Word?] Cone of Phallus of Iacchus, with ruby pyramid [Phallus, 831, 3 x 277, magician, lunar white wand, NVRA, MQL LBNH, ChRTM, ARIN the Ark, related mathematically to Great Pyramid of Cheops/Gizeh. (?)
+
+KIng’s Chamber (Reception AL) is the vault of the adepts—i.e. the vault of the adepts is a “vile imitation” of it. [Liber AL, also City of Pyramids - 5=6 literally entombed in a pyramid] also = Adytum in BOTA.
+
+Mons Cavernarum, 156 in Latin QBL (Cavern of Mt Abigenus)
+
+4 sides + roof + floor + chamber itself = 7 [not seven sides, it is a cube—Sepher Yetzirah, cube of space, Cubical Stone, 18º SR {Rosicrucian, as the Tomb of CR in GD—earlier reflection!]. {Just as Hexagram = 7 planets because center, Sol, is implied} So Pastos = 7. No furniture or symbols. Blue brilliant light of Horus (! Babaji) Blue only because imperfection of eyes (as blue sky). [Mental awakening into “Cube” in Liber 73, Magus initiation] Million insane images (333). Expiry into NOX (VII I:40) - Crowley does not understand this. Jab at “masters” of Theosophy that lend momentary credence to their insane babble. If you do not accept annihilation, you become a black brother and batshit insane babbler.
+
+PAstos as vacuum and angel understood as am “empty God” into which he will expire. (E and N in ZEN)
+
+Samekh, HGA lifts up
+
+Red = essence of Horus as stereotype of HGA
+
+Great Pyramid height to base is 5:8, golden mean, also = Pentagram. 
+
+Symbolic crossing of abyss, helped by angel, unlike actual where there is no help. 
+
+THE ANGEL DEALETH NOT WITH THE LITTLE PILE OF DUST IN THE CITY OF THE PYRAMIDS, BUT WITH THE STAR THAT IS CAST FORTH TO GIVE LIGHT TO THE EARTH.
+
+Pastos = Chamber of Annihilation, burnt up to pyramid/cone/phallus.  Pyramid within cone (purest rose/cross). representing new universe. established on 4 elements divided into 72, all categories time/space/causality etc. 
+
+And then there is a birth chamber, given refreshments… He can’t do it yet.
+
+Zelator initiation 2=9 is described. {Which I did} - i.e. 2=9 A.’.A.’. is Hod in Briah( or admits to?? ??)
+
+Wait no it’s: 
+
+NEW METHOD OF DEEPLY PARTAKING IN EACH AETHYR—in Samadhi, rather than hovering in Yetzirah(!)
+
+Do Cadavaris, and then at end:
+	Feast
+	banish all elements/planets/signs/sephiroth [Liber YOD]
+	Take Holy Table for altar
+	Call of Aethyr written in Enochian or Alphabet of Daggers on virgin vellum
+	Then conjure Aethyr
+	Burn text in lamp.
+	Kneel before holy table (in Dragon Asana) and you will get the vision. 
+
+Various inks—a color scale of the Aethyrs is here give. Change not so much as the style of a letter or holy name blasphemed. 
+Await the completion of 91st hour of retirement [see 91 days of Magus initiation] to open door. 
+
+91 = 3 days, 19 hours. 
+
+Crowley on Kelly: “No hint of the sublimity and profundity of such visions as the present series in the working of that Adept.”
+
+Author: “For this is a holy mystery, and he that did first attain to reveal the alphabet thereof, perceived not one ten-thousandth part of the fringe that is upon its vesture.”
+
+“loving-kindness”
