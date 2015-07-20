@@ -64,3 +64,8 @@ dump for him.  He was just a text for my sermon then; and so he is now.<br>
 - Jarman, the Angelic Conversation.
 
 <center><iframe width="420" height="315" src="https://www.youtube.com/embed/Sx_snnph5wM" frameborder="0" allowfullscreen></iframe></center>
+
+- KING JAMES BIBLE: Undertaken by James I, Dee’s enemy and hater of magick and witches, and forced to conform to the Anglican church. Incredible. Shift magick > Anglicanism. https://en.wikipedia.org/wiki/King_James_Version
+Mark 13:10: “10 And the gospel must first be published among all nations.”
+
+- Story of finding Enochian in newsgroup files in 90s.
