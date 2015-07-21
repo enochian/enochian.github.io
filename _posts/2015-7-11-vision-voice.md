@@ -919,17 +919,28 @@ K&C of HGA. Crowley’s True Will is to lead men to K&C. He discovered this by S
 In the Noble Eightfold Path, the practice leading to the complete cessation of Unsatisfactoriness, Sammasati is counted as the second factor of the Samadhi Section, the 'Higher Mental Training'. The usual definition of sammasati given in the Discourses is as follows:
 
 "Bhikkhus. What is sammasati? This is call sammasati, namely, that a bhikkhu in this Dhamma Vinaya:
+
 "1. Contemplates the body in the body with effort, sampajañña and sati, eradicating covetousness and distress with regard to the world;[1]
+
 "2. Contemplates feeling in feelings with effort, sampajañña and sati, eradicating covetousness and distress with regard to the world;
+
 "3. Contemplates the mind in the mind with effort, sampajañña and sati, eradicating covetousness and distress with regard to the world;
+
 "4. Contemplates dhammas[2] in dhammas with effort, sampajañña and sati, eradicating covetousness and distress with regard to the world." [D.II.313]
+
     Another definition, which appears in the Abhidhamma texts, is as follows:
+
 "What is sammasati? Sati means to bear in mind or bring to mind. Sati is the state of recollecting, the state of remembering, the state of non-fading, the state of non-forgetting. Sati means the sati that is a Spiritual Faculty, the sati that is a Spiritual Power, Sammasati, the Sati that is an Enlightenment Factor, that which is a Path Factor and that which is related to the Path. This is what is called sammasati." [Vbh.105, 286]
+
     Sammasati, as defined in the Discourses, is a synonym for the principles of Dhamma known as the Four Satipatthana. The four elements of this group have the abbreviated names of:
-	1.	Kayanupassana (contemplation or mindfulness of the body);
-	2.	Vedananupassana (contemplation or mindfulness of feelings);
-	3.	Cittanupassana (contemplation or mindfulness of mind);
-	4.	Dhammanupassana (contemplation or mindfulness of dhammas)
+
+1.	Kayanupassana (contemplation or mindfulness of the body);
+
+2.	Vedananupassana (contemplation or mindfulness of feelings);
+
+3.	Cittanupassana (contemplation or mindfulness of mind);
+
+4.	Dhammanupassana (contemplation or mindfulness of dhammas)
 
 JAE: Walking up skandas:
 
@@ -954,11 +965,14 @@ Via Vita Veritus Victoria Virtus - way, life, truth, victory, virtue = 28, ∑7.
 
 pent of v^v fades, replaced by black crosses (tables?) in a network.
 
-The 19th Aethyr, POP.
+
+<center><h1><p style="font-family: Enochian Writing">POP</p></h1></center>
+
+<center>The 19th Aethyr, POP.
 Yesod in Briah.
 “The path of Gimel. (The Hegemon between the Pillars. Preliminary: The Vision of the Unguided Universe.) <Path of Samekh (with Lamed and Gimel).>
 Cancer/Libra/Cancer
-Chariot/Libra/Chariot
+Chariot/Libra/Chariot</center>
 
 Comment: “Now cometh forth the Angel who giveth instruction, in the lowest form. The Hegemony in the Ceremony of Magister Templi which the Seer is about to undergo.”
 
@@ -997,7 +1011,6 @@ Greek, ICHTHYS - (Jesus fish/ vesicle) (traditionally a notariqon of “Iesous C
 
 “This explanation is given among others by Augustine in his Civitate Dei,[7] where he notes that the generating sentence " Ἰησοῦς Χρειστὸς [sic] Θεοῦ Υἱὸς Σωτήρ" has 27 letters, i.e. 3 x 3 x 3, which in that age indicated power. (This suggestion is obviously spurious, resulting from Augustine's ignorance of Greek.) [8] Augustine quotes also an ancient text from the Sibylline oracles[9] whose verses are an acrostic of the generating sentence.”
 
-
 [JL: Fish here also = Pisces, aeon of Pisces.]
 
 JAE and Crowley tie themselves in knots here, and Crowley never found a solution. The numerical explanation may be as simple as Ἰησοῦς Χρειστὸς Θεοῦ Υἱὸς Σωτήρ = 27 letters = 3x3x3, i.e. the Christic doctrine of Augustine in City of God is identified as of Choronzom.
@@ -1009,30 +1022,54 @@ City of God Book 18, Chapter 23:
 Of the Erythræan Sibyl, Who is Known to Have Sung Many Things About Christ More Plainly Than the Other Sibyls.[1]
 Some say the Erythræan sibyl prophesied at this time. Now Varro declares there were many sibyls, and not merely one. This sibyl of Erythræ certainly wrote some things concerning Christ which are quite manifest, and we first read them in the Latin tongue in verses of bad Latin, and unrhythmical, through the unskillfulness, as we afterwards learned, of some interpreter unknown to me. For Flaccianus, a very famous man, who was also a proconsul, a man of most ready eloquence and much learning, when we were speaking about Christ, produced a Greek manuscript, saying that it was the prophecies of the Erythræan sibyl, in which he pointed out a certain passage which had the initial letters of the lines so arranged that these words could be read in them: ᾽Ιησοῦς Χριστος Θεοῦ υιὸς σωτηρ, which means, “Jesus Christ the Son of God, the Saviour.” 
 
-[Flaccanius is unknown outside of Augustine, though is mentioned elsewhere in Aug as criticizing fortune-telling: https://books.google.com/books?id=ReU2M8cLtGcC&pg=PA1200&lpg=PA1200&dq=Flaccianus&source=bl&ots=wkAsluyKGc&sig=OyZvmGZKjPTmBaJd4Sb1oHTwOII&hl=en&sa=X&ved=0CC8Q6AEwAmoVChMIsqycntDqxgIVzSmICh0xNgW-#v=onepage&q=Flaccianus&f=false]
+[Flaccanius is unknown outside of Augustine, though is mentioned elsewhere in Aug as criticizing fortune-telling:](https://books.google.com/books?id=ReU2M8cLtGcC&pg=PA1200&lpg=PA1200&dq=Flaccianus&source=bl&ots=wkAsluyKGc&sig=OyZvmGZKjPTmBaJd4Sb1oHTwOII&hl=en&sa=X&ved=0CC8Q6AEwAmoVChMIsqycntDqxgIVzSmICh0xNgW-#v=onepage&q=Flaccianus&f=false)
+
 And these verses, of which the initial letters yield that meaning, contain what follows as translated by some one into Latin in good rhythm:
+
 Ι Judgment shall moisten the earth with the sweat of its standard, 
+
 Η Ever enduring, behold the King shall come through the ages, 
+
 Σ Sent to be here in the flesh, and Judge at the last of the world. 
+
 Ο O God, the believing and faithless alike shall behold Thee 
+
 Υ Uplifted with saints, when at last the ages are ended. 
+
 Σ Seated before Him are souls in the flesh for His judgment.  Χ Hid in thick vapors, the while desolate lieth the earth. 
+
 Ρ Rejected by men are the idols and long hidden treasures; 
+
 Ε Earth is consumed by the fire, and it searcheth the ocean and heaven; 
+
 Ι Issuing forth, it destroyeth the terrible portals of hell. 
+
 Σ Saints in their body and soul freedom and light shall inherit; 
+
 Τ Those who are guilty shall burn in fire and brimstone for ever. 
+
 Ο Occult actions revealing, each one shall publish his secrets; 
+
 Σ Secrets of every man’s heart God shall reveal in the light.  Θ Then shall be weeping and wailing, yea, and gnashing of teeth; 
+
 Ε Eclipsed is the sun [Yesod-Tiphareth=Samekh], and silenced the stars in their chorus. 
+
 Ο Over and gone is the splendor of moonlight [Yesod], melted the heaven, 
+
 Υ Uplifted by Him are the valleys, and cast down the mountains.  Υ Utterly gone among men are distinctions of lofty and lowly. 
+
 Ι Into the plains rush the hills, the skies and oceans are mingled. 
+
 Ο Oh, what an end of all things! earth broken in pieces shall perish; 
+
 Σ .... Swelling together at once shall the waters and flames flow in rivers.  Σ Sounding the archangel’s trumpet shall peal down from heaven, 
+
 Ω Over the wicked who groan in their guilt and their manifold sorrows. 
+
 Τ Trembling, the earth shall be opened, revealing chaos and hell. 
+
 Η Every king before God shall stand in that day to be judged. 
+
 Ρ Rivers of fire and brimstone shall fall from the heavens.
 
 [JL NOTE: This bears extreme similarity to the English text of the 19th Call:
@@ -1061,15 +1098,18 @@ Add and diminish until the stars be numbered. Arise! Move! and appear before the
 And, of course, 3^3 = Coronzom, who is *overcome* past ZAX, making this a “blessing”—that everything should be as it is below the abyss, though seen as perfection from the Supernal world. Also not the Erytherean sibil = Binah or Babalon. 
 
 In these Latin verses the meaning of the Greek is correctly given, although not in the exact order of the lines as connected with the initial letters; for in three of them, the fifth, eighteenth, and nineteenth, where the Greek letter Υ occurs, Latin words could not be found beginning with the corresponding letter, and yielding a suitable meaning. So that, if we note down together the initial letters of all the lines in our Latin translation except those three in which we retain the letter Υ in the proper place, they will express in five Greek words this meaning, “Jesus Christ the Son of God, the Saviour.” And the verses are twenty-seven, which is the cube of three. For three times three are nine; and nine itself, if tripled, so as to rise from the superficial square to the cube, comes to twenty-seven. But if you join the initial letters of these five Greek words, ᾽Ιησοῦς Χριστος Θεοῦ υἰὸς σωτήρ, which mean, “Jesus Christ the Son of God, the Saviour,” they will make the word ἰχδὺς, that is, “fish,” in which word Christ is mystically understood, because He was able to live, that is, to exist, without sin in the abyss of this mortality as in the depth of waters.[2]
+
 [Abyss, waters of Binah = Christ as fish within Binah]
-https://en.wikipedia.org/wiki/Sibyl = frenzied women w ptsd = Sumerian temple whores, Babalon
+
+[Sibyl](https://en.wikipedia.org/wiki/Sibyl) = frenzied women w ptsd = Sumerian temple whores, Babalon
 
 [Cumaean Sibyl[edit]
+
 Main article: Cumaean Sibyl
+
 The sibyl who most concerned the Romans was the Cumaean Sibyl, located near the Greek city of Naples, whom Virgil's Aeneas consults before his descent to the lower world (Aeneid book VI: 10). Burkert notes (1985, p 117) that the conquest of Cumae by the Oscans in the 5th century destroyed the tradition, but provides a terminus ante quem for a Cumaean sibyl. It was she who supposedly sold to Tarquinius Superbus, the last king of Rome, the original Sibylline books. Christians were especially impressed with the Cumaean Sibyl, for in Virgil's Fourth Eclogue she foretells the coming of a savior – possibly a flattering reference to the poet's patron – whom Christians identified as Jesus.[18][19][20]]
 
 But this sibyl, whether she is the Erythræan, or, as some rather believe, the Cumæan, in her whole poem, of which this is a very small portion, not only has nothing that can relate to the worship of the false or feigned gods, but rather speaks against them and their worshippers in such a way that we might even think she ought to be reckoned among those who belong to the city of God. Lactantius also inserted in his work the prophecies about Christ of a certain sibyl, he does not say which. But I have thought fit to combine in a single extract, which may seem long, what he has set down in many short quotations. She says, “Afterward He shall come into the injurious hands of the unbelieving, and they will give God buffets with profane hands, and with impure mouth will spit out envenomed spittle; but He will with simplicity yield His holy back to stripes. And He will hold His peace when struck with the fist, that no one may find out what word, or whence, He comes to speak to hell; and He shall be crowned with a crown of thorns. And they gave Him gall for meat, and vinegar for His thirst: they will spread this table of inhospitality. For thou thyself, being foolish, hast not understood thy God, deluding the minds of mortals, but hast both crowned Him with thorns and mingled for Him bitter gall. But the veil of the temple shall be rent; and at midday it shall be darker than night for three hours. And He shall die the death, taking sleep for three days; and then returning from hell, He first shall come to the light, the beginning of the resurrection being shown to the recalled.” Lactantius made use of these sibylline testimonies, introducing them bit by bit in the course of his discussion as the things he intended to prove seemed to require, and we have set them down in one connected series, uninterrupted by comment, only taking care to mark them by capitals, if only the transcribers do not neglect to preserve them hereafter. Some writers, indeed, say that the Erythræan sibyl was not in the time of Romulus, but of the Trojan war.
-
 
 "The City of God Against the Pagans" by St. Augustine is a cornerstone of Western thought, in which the critical Catholic theologist decries the number of teenage Wiccans with black nail polish, pentagram necklaces and bo-staffs that are always playing "Magic: The Gathering" in front of the Cinnabon in the mall food court by his house. It was followed three years later by a less popular work, "The City of God Against the Furries."
 
@@ -1091,11 +1131,13 @@ OISIRIS WAS BLACK GOD = [Duat] Osiris is of the nature of Binah, black, and he m
 
 Note: Realized that the I Ching, being the Book of Changes and therefore of Chokmah, and above the Abyss, speaks in Supernal language—this is why it never seems to give a direct answer. It answers non-dually.
 
-The 18th Aethyr, ZEN.
+<center><h1><p style="font-family: Enochian Writing">ZEN</p></h1></center>
+
+<center>The 18th Aethyr, ZEN.
 Hod in Briah.
 “Tiphareth. (The King’s Chamber. The Vision of the Holy Guardian Angel.) The Instruction concerning the Obtaining of the Vision and the Voice of the 30 Aethyrs. The Preparation of the Candidate.”
 Leo/Virgo/Scorpio
-Lust/Hermit/Death
+Lust/Hermit/Death</center>
 
 Comment: “The Vault of preparation for the Ceremony of Magister Templi. The Veil is the Crucifixion, symbol of the dead Aeon. The first ordeal is undergone.”
 
@@ -1108,19 +1150,25 @@ ZEN = 69 = ABVS, manger/stable/enclosure. HGA prepares candidate below any norma
 Combines elements of the 5=6 GD and 2=9 A.’.A.’. initiations. [Vault of Adepti/King’s Chamber—my ritual in Hemet. Masonic Chamber of Reflection for 3rd Order.]
 
 If you bring in the implements of crucifixion, they will be used on you.
+
 Nails = 3 desires (vau vau vau 666) = desire for light, life, love [gunther: LLLL at base of pyramid of aspirant] [This applies only to this step, not to Man of Earth]
+
 Thorns = Thoughts
+
 Whips = Regrets
+
 Wine = Unsteadiness in ecstasy (See Liber AL)
+
 Spear = Attachment
 
 Free self from all attachment, desires, mind. (Buddhism)
 
 Christ as Bat, thieves as two children (ATU XIX? Inversion of Sun. Qlipha of Resh/Tiphareth?) Night full of hideous things and howling (Goetia?) If you change so much as a letter the holy word is blasphemed (fill/kill). This is the “empty shell” of mystery of ZEN [JL: Indeed - the Qlipha of Resh or Tiphareth in Briah]
 
-
 Reference to Exodus 33:22-23: Many Adepts’s eyes have failed before the glory of thy countenance
+
 “22 And it shall come to pass, while my glory passeth by, that I will put thee in a clift of the rock, and will cover thee with my hand while I pass by:
+
 23 And I will take away mine hand, and thou shalt see my back parts: but my face shall not be seen.”
 Portal signs given. 72 whirling signs of fiery light (Shemham - related to “Howlings” mentioned before as being attributed to the Goetia)
 
