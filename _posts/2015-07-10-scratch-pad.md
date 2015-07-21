@@ -69,3 +69,19 @@ dump for him.  He was just a text for my sermon then; and so he is now.<br>
 Mark 13:10: “10 And the gospel must first be published among all nations.”
 
 - Story of finding Enochian in newsgroup files in 90s.
+
+- phantom tollbooth, wizard of oz, wake world vs vision & voice as initiatory plays
+
+Some unsorted original writing:
+
+“The Vision and the Voice stands alone in the world’s spiritual literature as a singularly elegant fusion of religious doctrine. It represents a kind of calculus of religious concepts, an advanced mathematics of magic and mysticism, both subsuming and overthrowing the world’s religious symbolism.”
+
+When confronted with the immense complexity of Enochian, an immediate question may be: Why? Why complexify spirituality to this degree? Does this not represent a massive case of missing the forest for the trees?
+
+In the 21st century, many of us have a very limited (and limiting) view of spirituality; most intelligent moderns have discarded the dogma of the Church and subscribed to atheism and materialism. In this context, spirituality is often contextualized as a way to momentarily “feel good”—a yoga class, a seminar on positive thinking.  In contrast to this, in the Enochian corpus we are confronted by a form of spirituality that more closely suggests high-level computer programming than anything else.
+
+Why bother with something this complex? Isn’t spirituality about basic common sense? Isn’t just being a good person, being kind to our neighbors, and perhaps being against war and abusive businesses enough? 
+
+It is this sentimental attitude towards spirituality—that living a good life, as measured by the social standards of the day, is enough—that is directly challenged not only by Enochian, but by many of the more structured world religions, from Catholicism to Vajrayana Buddhism to Vedanta. Spirituality is not concerned with sentimental “following the rules” of the average individual, who believes that if they follow the rules of society they are a “good” person and therefore spiritually pure. 
+
+We can find a perfectly clear refutation of this attitude in the Enochian Aethyrs themselves—specifically in the 20th Aethyr, KHR, as explored by Aleister Crowley and Victor Neuberg in 1909. Here, the Lamb of God or Agnus Dei, a traditional image of Christ as “sacrificial lamb,” appears as the “Great Deceiver” and chief of the lying spirits, drunk on the blood of the saints. The lamb, which appears at the top of the Wheel of Fortune, the illusory whirlings of life, is shown as distracting the sentimental from reaching the center of the wheel—distracting these individuals by its seemingly “pure and white” nature. This, Crowley explains, shows that sentimentality is a parody of intuition. It is  a simulation of the actual intuitive promptings of the soul—prompted by the weakness of the body and animal instincts, and leading to the corrupt doctrines of sin and vicarious atonement, rather than the heroic path of the initiate, who must overcome these illusions by overcoming their mind and embracing emptiness.
