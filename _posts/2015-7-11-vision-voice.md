@@ -64,6 +64,10 @@ While each Aethyr represents one Sephira in one of the four (three of four) worl
 
 Using this scheme, we are also left to wonder: Where is Assiah? Does Assiah simply correspond to the physical planets, elements and zodiacal regions? Are there occult methods for exploration of these? 
 
+We may also ask, what of the Qliphoth? Early in my magical training (as a young man would), I became curious as to whether there existed a "negative world" version of the Enochian Calls, which called the Shells of the Qliphoth instead of the Spheres of the Sephirah, and nagged my teachers with this question. Reading through the *V&V*, however, I see that there are many places where the Qliphoth *do* seem to shine through—for instance, the 18th Aethyr seems to suggest the Qlipha of Tiphareth (a crucified bat) and Resh (the crucified children from the Sun Tarot card) in a nightside setting, which is explicitly referred to as the "empty shell" of the Aethyr. This suggests that the Qliphoth bleed through into the Aethyrs themselves; it also *may* put to rest another question: are the Qliphoth a "fifth world," "below" Assiah, or are there in fact Qlipha of all 400 spheres (now making 400 spheres and 400 shells total—and what of Da'ath)? This seems a more elegant theory. Additionally, we are regularly confronted with the image of the Dragon throughout the Aethyrs, who represents the Qlipha and Shells (which may also simply be the non-Supernal sephira), as elucidated in the Golden Dawn rituals and in Mathers' translation of Knorr von Rosenroth. And we must not forget the role of Coronzom himself; who (at least according to Kenneth Grant, hardly a primary source), forms a gateway into the Qliphothic Tree itself, via ZAX and/or Da'ath.
+
+We are left to ponder the relation of the symbols of the Dragon, The Beast, BABALON and Coronzom to the Qliphoth as they relate to the Aethyrs and the overall apocalyptic drama of Revelation, the Spirit Diaries and the Book of the Law. 
+
 ##Operating Procedures
 
 Crowley's initial experiments were undertaken by modifying the 19th Call for each Aethyr, and then scrying the Spirit Vision—astral travel or willed imagination—which is outlined in the grade papers of the Golden Dawn. More precise methods, involving prepartory pentagrams and grade signs, are given in his later paper *Liber Chanokh*. None of this is found in Dee and Kelley; they are Golden Dawn methods. 9 years passed between his initial investigation of Aethyrs 30 and 29 and the Algerian experiment; this Crowley attributes to having increased his Grade or spiritual maturity to now be able to handle the visions. This factoring of the observer and their responses to messages, as well as changing information, perhaps, may be applied in reverse to Dee and Kelley. Crowley's line, again from the *Confessions*, is: "Anyone might use the Key for any Aethyr he chose, but he would either get no vision at all or expose himself to deception, and that probably of the deadly dangerous kind."
@@ -582,53 +586,37 @@ Mystics and even the kingdom of heaven itself upholds the Sky (Seb/Nuit), to neg
 
 [North: 0=0 entering of path of darkness that one may be brought to light]
 
-Identity of Taurus with Scorpio, his zodiacal opposite. Bull as Vau: Chokmah to Chesed. Reference to woman and bull: 16th Aire. Ruins of Eden / Leviathan of False Sea (Mathers translating Rosenroth on Qliphoth):
+Identity of Taurus with Scorpio, his zodiacal opposite. Bull as Vau: Chokmah to Chesed. Reference to woman and bull: 16th Aire. Ruins of Eden / Leviathan of False Sea [(Mathers translating Rosenroth on Qliphoth)](http://www.sacred-texts.com/jud/tku/tku04.htm):
 
-http://www.sacred-texts.com/jud/tku/tku04.htm
+*25. But there are excavations of excavations. (The excavation is the receptacle, like that which is hollowed out, or carved out, like a cave, or any other receptacle. Therefore all receptacles are inferior with respect to the superiors, among which the "shells" hold the last place, which here are described, which are) under the form of a vast serpent extending this way and that. (Concerning this serpent the author of the "Royal Valley" speaks thus in his "Treatise of the Shells." The fragments of the receptacles, which have fallen into the world of Creation, of Formation, and of Action, therein exist from the Outer; and judgments are more consonant to these, which are called profane, and have their habitation in the middle space between the Holy and the Unclean. And from the head is formed that great dragon which is in the sea, and is the sea-serpent, which is, however, not so harmful as the earthly one. And this dragon hath been castrated since his crest (or membrum genitale), together with his mate, have been repressed, and thence have been formed four hundred desirable worlds. And this dragon hath in his head a nostril (after the manner of whales) in order that he may receive influence, and in himself he containeth all other dragons, concerning which it is said: "Thou hast broken the heads of the dragons upon the waters" (Ps. lxxiv. 13). And here the idea or universal form of all the shells is understood, which encompasseth the seven inferior emanations of the queen after the manner of a serpent, as well from the right as from the left and from every side.)*
 
-25. But there are excavations of excavations. (The excavation is the receptacle, like that which is hollowed out, or carved out, like a cave, or any other receptacle. Therefore all receptacles are inferior with respect to the superiors, among which the "shells" hold the last place, which here are described, which are) under the form of a vast serpent extending this way and that. (Concerning this serpent the author of the "Royal Valley" speaks thus in his "Treatise of the Shells." The fragments of the receptacles, which have fallen into the world of Creation, of Formation, and of Action, therein exist from the Outer; and judgments are more consonant to these, which are called profane, and have their habitation in the middle space between the Holy and the Unclean. And from the head is formed that great dragon which is in the sea, and is the sea-serpent, which is, however, not so harmful as the earthly one. And this dragon hath been castrated since his crest (or membrum genitale), together with his mate, have been repressed, and thence have been formed four hundred desirable worlds. And this dragon hath in his head a
+*[The excavation or receptacle of a Sephira is that quality whereby it receives the supernal influence from that which immediately precedes it; hence each Sephira has a double quality of receiving and of transmitting, which passes through the four worlds in each which the Sephiroth exist, though in gradually decreasing light. (See Table subjoined.) The "shells," Qlipoth, are the demons, in whom again is a form of the Sephiroth, distorted and averse. This great dragon which is here described is evidently identical with the leviathan of Job. He is the executor of judgment, the centripetal force, the old serpent ever seeking to penetrate into Paradise; finally, in a more exoteric sense he is Satan and the devil, the accusing one. In the Sepher Yetzirah, a most important qabalistical book, he is called Theli, ThLI, the dragon. Now, by Gematria. ThLI = 400 + 30 + 10 = 440; and if we "repress his crest"--i.e., take away the first letter, which is Th, Tau,--400, there will remain LI = 40 = M, Mem, the water. The "400 desirable worlds" are the numerical value of Th, and signify the power of the Tetragrammaton on the material plane (See note to section 21, foregoing). There is much alchemical symbolism contained in the "Siphra Dtzenioutha." The "Seven Inferior Emanations" of the queen, are the seven lower Sephiroth --viz., Chesed, Geburah, Tiphereth, Netzach, Hod. Yesod, and Malkuth; or Microprosopus and his bride, the king and queen. Shells," Qliphoth, are the evil spirits.]*
 
-p. 51
+*26. His tail is in his head (that is, he holdeth his tail in his mouth, in order that he may form a circle, since he is said to encompass holiness). He transferreth his head to behind the shoulders (that is, he raiseth his head at the back of the bride of Microprosopus, where is the place of most severe judgments), and he is despised (since in him is the extremity of judgments and severities, whence wrath is the attribute of his forms). He watcheth (that is, he accurately searcheth out and seeketh in what place he may gain an entry into holiness. And he is concealed (as if laying traps; since he insinuateth himself into the inferiors, by whose sins he hath access to the holy grades, where the carrying out of judgments is committed to him.) He is manifested in one of the thousand shorter days. (Numbers are called days, and numbers of the inferior world short days; among which tens are attributed to the factive, on account of their decimal numeration; hundreds to the formative, since they are numbers of the light of their author, and draw their existence from the tens; but thousands to the creative, for the same reason. But that dragon hath about this his. most powerful location, whence, if a defect occurreth only in one numeration of that system through the fault of the inferiors, he is immediately manifest, and thus commenceth his accusations before the throne of glory.)*
 
-nostril (after the manner of whales) in order that he may receive influence, and in himself he containeth all other dragons, concerning which it is said: "Thou hast broken the heads of the dragons upon the waters" (Ps. lxxiv. 13). And here the idea or universal form of all the shells is understood, which encompasseth the seven inferior emanations of the queen after the manner of a serpent, as well from the right as from the left and from every side.)
+*[Here is the origin of the well-known symbol of a serpent holding his tail in his mouth, like a circle--the serpent of Saturn. The reason that he raiseth his head behind the shoulders of the bride (Malkuth) is because he is. so to speak, not only the executor of judgment, but also the destroyer; destruction as opposed to creation, death as opposed to life. For the whole Sephiroth are represented as being the balance of mercy and justice, and the tenth Sephira is especially of the nature of justice, as also is Geburah. the fifth. He is concealed, because he is not called into action till justice requires him. The term "decimal numeration" of course refers to the ten Sephiroth. The presence of the serpent when revealed, is an accusation, because it shows that the balance is destroyed; just as in a watch, if one of the wheels be injured, irregularity is at once manifested. Now, life, when it consists of birth into another form, necessarily implies death in the previous form. The throne of glory is the Briatic world.]*
 
-[The excavation or receptacle of a Sephira is that quality whereby it receives the supernal influence from that which immediately precedes it; hence each Sephira has a double quality of receiving and of transmitting, which passes through the four worlds in each which the Sephiroth exist, though in gradually decreasing light. (See Table subjoined.) The "shells," Qlipoth, are the demons, in whom again is a form of the Sephiroth, distorted and averse. This great dragon which is here described is evidently identical with the leviathan of Job. He is the executor of judgment, the centripetal force, the old serpent ever seeking to penetrate into Paradise; finally, in a more exoteric sense he is Satan and the devil, the accusing one. In the Sepher Yetzirah, a most important qabalistical book, he is called Theli, ThLI, the dragon. Now, by Gematria. ThLI = 400 + 30 + 10 = 440; and if we "repress his crest"--i.e., take away the first letter, which is Th, Tau,--400, there will remain LI = 40 = M, Mem, the water. The "400 desirable worlds" are the numerical value of Th, and signify the power of the Tetragrammaton on the material plane (See note to section 21, foregoing). There is much alchemical symbolism contained in the "Siphra Dtzenioutha." The "Seven Inferior Emanations" of the queen, are the seven lower Sephiroth --viz., Chesed, Geburah, Tiphereth, Netzach, Hod. Yesod, and Malkuth; or Microprosopus and his bride, the king and queen. Shells," Qliphoth, are the evil spirits.]
+*27. There are swellings in his scales (that is, like as in a crocodile; because great in him is the heaping together of judgments). His crest keepeth its own place (that is, there is in him no further power of hastening to things beyond in the Outer).* 
 
-26. His tail is in his head (that is, he holdeth his tail in his mouth, in order that he may form a circle, since he is said to encompass holiness). He transferreth his head to behind the shoulders (that is, he raiseth his head at the back of the bride of Microprosopus, where is the place of most severe judgments), and he is despised (since in him is the extremity of judgments and severities, whence wrath is the attribute of his forms). He watcheth (that
+*[There is in the destroyer no "hastening to the outer," because he is centripetal and not centrifugal.]*
 
-p. 52
+*28. But his head is broken by the waters of the great sea. (The great sea is wisdom, the fountain of mercy and loving-kindness; which, if it sendeth down its influence, judgments are pacified, and the hurtful power of the shells is restricted); like as it is written, Ps. lxxiv. 13: "Thou hast broken the heads of the dragons by the waters."*
 
-is, he accurately searcheth out and seeketh in what place he may gain an entry into holiness. And he is concealed (as if laying traps; since he insinuateth himself into the inferiors, by whose sins he hath access to the holy grades, where the carrying out of judgments is committed to him.) He is manifested in one of the thousand shorter days. (Numbers are called days, and numbers of the inferior world short days; among which tens are attributed to the factive, on account of their decimal numeration; hundreds to the formative, since they are numbers of the light of their author, and draw their existence from the tens; but thousands to the creative, for the same reason. But that dragon hath about this his. most powerful location, whence, if a defect occurreth only in one numeration of that system through the fault of the inferiors, he is immediately manifest, and thus commenceth his accusations before the throne of glory.)
+*["The waters of the great sea," are the influence of the supernal mother, Binah, of whom Malkuth is the reflection. But Binah receives the influence of Chokmah. See Introduction.]*
 
-[Here is the origin of the well-known symbol of a serpent holding his tail in his mouth, like a circle--the serpent of Saturn. The reason that he raiseth his head behind the shoulders of the bride (Malkuth) is because he is. so to speak, not only the executor of judgment, but also the destroyer; destruction as opposed to creation, death as opposed to life. For the whole Sephiroth are represented as being the balance of mercy and justice, and the tenth Sephira is especially of the nature of justice, as also is Geburah. the fifth. He is concealed, because he is not called into action till justice requires him. The term "decimal numeration" of course refers to the ten Sephiroth. The presence of the serpent when revealed, is an accusation, because it shows that the balance is destroyed; just as in a watch, if one of the wheels be injured, irregularity is at once manifested. Now, life, when it consists of birth into another form, necessarily implies death in the previous form. The throne of glory is the Briatic world.]
+*29. They were two (male and female, whence the text of the Psalm speaketh of the dragons in the plural number; but when the plural number is given in its least form, two only are understood). They are reduced into one (for the female leviathan hath been slain, lest they should seek to multiply judgments). Whence the word ThNINM, Thenanim (in the before-mentioned passage of the Psalm), is written in a defective form (purposely to denote that restriction).*
 
-27. There are swellings in his scales (that is, like as in a crocodile; because great in him is the heaping together of judgments). His crest keepeth its own place (that is, there is in him no further power of hastening to things beyond in the Outer).
+*[I may refer the reader to the Talmud for further information regarding Jewish ideas of the Leviathan. Thenanim is written in a defective form, because the letter I of the plural is omitted. Written fully, it should be ThNINIM, instead of ThNINM.]*
 
-p. 53
+*30. (But it is said) heads (in the plural number, for the purpose of denoting a vast multitude, as well of species as of individuals in that genus); like as it is written, Ezek. i. 22: "And a likeness as a firmament above the heads of the living creature." (Where also the word living creature, ChIH, Chiah, is put in the singular as a genus of angels; and heads in the plural for the purpose of denoting species and innumerable individuals.)*
 
-[There is in the destroyer no "hastening to the outer," because he is centripetal and not centrifugal.]
-
-28. But his head is broken by the waters of the great sea. (The great sea is wisdom, the fountain of mercy and loving-kindness; which, if it sendeth down its influence, judgments are pacified, and the hurtful power of the shells is restricted); like as it is written, Ps. lxxiv. 13: "Thou hast broken the heads of the dragons by the waters."
-
-["The waters of the great sea," are the influence of the supernal mother, Binah, of whom Malkuth is the reflection. But Binah receives the influence of Chokmah. See Introduction.]
-
-29. They were two (male and female, whence the text of the Psalm speaketh of the dragons in the plural number; but when the plural number is given in its least form, two only are understood). They are reduced into one (for the female leviathan hath been slain, lest they should seek to multiply judgments). Whence the word ThNINM, Thenanim (in the before-mentioned passage of the Psalm), is written in a defective form (purposely to denote that restriction).
-
-[I may refer the reader to the Talmud for further information regarding Jewish ideas of the Leviathan. Thenanim is written in a defective form, because the letter I of the plural is omitted. Written fully, it should be ThNINIM, instead of ThNINM.]
-
-30. (But it is said) heads (in the plural number, for the purpose of denoting a vast multitude, as well of species as of individuals in that genus); like as it is written, Ezek. i. 22: "And a likeness as a firmament above the heads of the living creature." (Where also the word living creature, ChIH, Chiah, is put in the singular as a genus of angels; and heads in the plural for the purpose of denoting species and innumerable individuals.)
-
-["Thou hast broken the heads of the dragons (Thenanim) by the waters." It must be remembered that this dragon is said by the author of the "Royal Valley" to be the king of all the "shells"
-
-p. 54
-
-or demons. Now, the demons are divided into ten classes. corresponding to the ten Sephiroth, but in an averse form, and are called in the book, "Beth Elohim," the "impure Sephiroth." The heads of the leviathan (cf. the Lernæan Hydra which Hercules slew) are probably these. Compare the description of the beast in Revelation.]
+*["Thou hast broken the heads of the dragons (Thenanim) by the waters." It must be remembered that this dragon is said by the author of the "Royal Valley" to be the king of all the "shells" or demons. Now, the demons are divided into ten classes. corresponding to the ten Sephiroth, but in an averse form, and are called in the book, "Beth Elohim," the "impure Sephiroth." The heads of the leviathan (cf. the Lernæan Hydra which Hercules slew) are probably these. Compare the description of the beast in Revelation.]*
 
 Rose of earth surmounts cross of fire in symbol venus (note rose/cross symbol). 
 
 Toil creates kinetic energy. In my stability is concentrated eternal change. Whirlings of universe are course of blood in my heart. variety is crown. … doctrine of Stability = Change (9=2/2=9) and universe as stable change [Rashith ha-Gilgalim, Buddhist Change/Sorrow—anikka and dukkha as Chokmah and Binah{!!}], everything being the Bull Kerub of Earth [matter]. Silver/Purple/Golden [Yesod/Tiphareth] veils. Women kissing: Bull=Eagle. Veils open again: Assyrian eagle [Again Sumerian/Assyrian imagery of the Kerubs. i.e. Sumerianize the elemental kerubs in practice]. 
 
-http://m6.i.pbase.com/o6/37/556037/1/109713176.d3LA5liL.EPO_7162_small.jpg
+<center><img src="http://m6.i.pbase.com/o6/37/556037/1/109713176.d3LA5liL.EPO_7162_small.jpg"></center>
 
 Disk becomes sword, bull becomes eagle. Scorpion heart in bull of mithras. 
 
@@ -660,13 +648,13 @@ UT in Up.:
 
 7. Ut is heaven, gî the sky, tha the earth. Ut is the sun, gî the air, tha the fire. Ut is the Sâma-veda,, gî the Yagur-veda, tha the Rig-veda 1.
 
-LIN
+<center><h1><p style="font-family: Enochian Writing">LIN</p></h1></center>
 
-The 22nd Aethyr, LIN.
+<center>The 22nd Aethyr, LIN.
 Chokmah in Yetzirah.
 “The 49-fold table. (First appearance of the Crowned and Conquering Child to the Exempt Adept as in the Pastos.) The Vision of the Rose, the Heart of BABALON and of the Birth of the Universe. <Sevenfold Table>.”
 Cancer/Sagittarius/Scorpio.
-The Chariot/Air/Death.
+The Chariot/Air/Death.</center>
 
 Comment: Here is the First Key to the formula of Horus, a sevenfold arrangement. A shadow of Horus declares his nature.
 
@@ -676,7 +664,10 @@ LIN=ChSN, ruler of Air, Strength. 118 = 2 x 59, Brethren. Twins concealed in Her
 
 Into the stone: The table of 49 squares. (Chanokh: SAAIME/SBHDIII table—this is presumably the 7 names of Sigillum Dei Aemeth i.e. Babalon, arranged into a magical square—or this square likely predated the Sigillum? See Skinner.). {7 planetary angels are drawn from this table.} Surrounded by angels [Gods down to elementals]. Each letter composed of 49 other letters, in a language similar to that of Honorius/Theban [See Agrippa—~1531, pre-Dee and Dee influential]. (!!) But cannot be read. Now comes PAN as an angel uniting 7 planets [9th Aethyr] [many colors, but = Chokmah; as gray of chokmah = all colors. Also Samekh = rainbow]. Aire beocmes light and drips dew [Supernal Lion-Serpent in Menstruum of Liquid Pearl {Gimel?}] [JAE starts calling this a “quasi-physical” kundalini phenomenon here are starts babbling about John Denver wtf. Mentioned in GD 4=7?]. Dew = enormous globs, shining like moon, perfectly transparent and luminous.  [falling yods. Gen 27:38]
 
-49 letters of tablet = 49 kinds of cosmos in every thought of God. 49 interpretations of every cosmos, every interpretation manifested 49 ways. So 49 calls, to each of which there are 49 visions. [Bowie when I’m typing: “Must have been touching close to 94.”] And each visions = 49 elements, except 10th, which is accursed, and has 42. [Doug Adams??] [42=Demiurge in Gen I, assessors in hall of dead, AMA Sterile Mother, Terror and Destruction, Loss, Earth of Malkuth. 10th Aethyr etc.] [Genesis I as Demiurge “evilly” creating imperfection from perfection.]
+49 letters of tablet = 49 kinds of cosmos in every thought of God. 49 interpretations of every cosmos, every interpretation manifested 49 ways. So 49 calls, to each of which there are 49 visions. [Bowie when I’m typing: “Must have been touching close to 94.”] And each visions = 49 elements, except 10th, which is accursed, and has 42. [Doug Adams??] [42=Demiurge in Gen I, assessors in hall of dead, AMA Sterile Mother, Terror and Destruction, Loss, Earth of Malkuth. 10th Aethyr etc.] 
+
+[Genesis I as Demiurge “evilly” creating imperfection from perfection.]
+
 [JAE: Implicit call 0 is silence. {DeSalvo 49th call/table?} Total elements would = 1463, 7 x 209, 209 = HDR, The Pearl]
 
 Solar Child develops from the Dew. 
@@ -688,7 +679,9 @@ Standing in form of Kneph, 0^0 omniform zero, winged egg from which all positive
 Looking into liquid surface of egg, all names of God, even not known to angels, crowd about.
 
 7 senses -> 1 sense, then dissolved into itself in samadhi [sagittarius?]. Declare it all [all sag?] No link to Perdurabo. In samadhi behind veil of Table —Table as “Veil of Infinite”. Arms in form of cross, extending into infinity, with himself as point within it (Nuit/Hadit)—this is the birth of form. 
+
 Encircled by immense sphere of many-colored bands, sphere of Sephiroth projected in the three dimensions—the birth of death. [Saturn?] [Death as self extended into negative circle/sphere of Nuit instead of positive balanced cross] [JL: This is an excellent summary of NOX formula vs LVX formula. One simply sees BEYOND the limits of the Cross of manifestation into infinity and then emptiness, i.e. Via Negativa, NOX.]
+
 In center within is glowing sun—the birth of hell, the secret center of self [Liber Aleph]. “One perceives one’s Star as one’s True Self.” (!?!?! whoa dude. Also… VIIº OTO? Star as solar-phallic? WHOA DUDE)
 
 Hell = same root as all covered/concealed stuff [JAE] Crucifixtion as Nuit/Hadit/Heru-Ra-Ha.
@@ -721,11 +714,12 @@ Osiris was tricked into death by magick and had to overcome it with the formula 
 The table reappears and says you’ve translated the vision into reason, this causes new Falls. 
 
 Mark 2:25-26New International Version (NIV)
+
 25 He answered, “Have you never read what David did when he and his companions were hungry and in need? 26 In the days of Abiathar the high priest, he entered the house of God and ate the consecrated bread, which is lawful only for priests to eat. And he also gave some to his companions.”
 
 i.e. profaning the sacred… connection between SHEW-BREAD and SHEW-STONE of Dee? I.e. storming heaven unlawfully…
 
-https://en.wikipedia.org/wiki/Showbread
+[Showbread wiki](https://en.wikipedia.org/wiki/Showbread)
 
 This cannot be re-opened except by virtue of ARARITA—i.e. equating and identifying every idea with its opposite, thereby being released from fixed truth and completely withdrawing from Ruach. See Chapters of ARARITA for the method: Thesis > Antithesis > Quintessence > Withdrawal > Erasure in the method itself > Reappearance in form appointed by Adept. 
 
@@ -739,21 +733,19 @@ SatChitAnanda, 4 powers of Sphinx. Being/Knowledge/Bliss, Will/Courage/Wisdom/Si
 
 Sorrow upon seeing world as it is (Dukkha, Binah).
 
-“The Vision and the Voice stands alone in the world’s spiritual literature as a singularly elegant fusion of religious doctrine. It represents a kind of calculus of religious concepts, an advanced mathematics of magic and mysticism, both subsuming and overthrowing the world’s religious symbolism.”
-
 JAE says this is the true promise of the Lord of the New Aeon: “Behold! Where are now the darkness and the terror and the lamentation? For ye are born into the new Aeon; ye shall not suffer death. Bind up your girdles of gold! Wreath yourselves with garlands of my unfading flowers! In the nights we will dance together, and in the morning we will go forth to war; for, as my Father liveth that was dead, so do I live and shall never die.”
 
 [At night he is shown a vision of temple that is a mix of Lhasa and Abu-Jimmel {possibly Jain temple on Mt. Abu in India}.]
-[Note: I saw nearby/similar Jain temples in Rajasthan in 2004: https://www.google.com/search?q=jain+temple+mt.+abu&biw=1197&bih=734&tbm=isch&tbo=u&source=univ&sa=X&ved=0CB0QsARqFQoTCPSApJeh6MYCFVUviAodfYcB9g. South of Jodhpur]
+Note: I saw nearby/similar Jain temples in Rajasthan in 2004: [here](https://www.google.com/search?q=jain+temple+mt.+abu&biw=1197&bih=734&tbm=isch&tbo=u&source=univ&sa=X&ved=0CB0QsARqFQoTCPSApJeh6MYCFVUviAodfYcB9g). South of Jodhpur
 
 
-ASP
+<center><h1><p style="font-family: Enochian Writing">ASP</p></h1></center>
 
-The 21st Aethyr, ASP.
+<center>The 21st Aethyr, ASP.
 Kether in Yetzirah.
 “Ether. (The Hierophant prepares the Candidate.) The Vision of the Ineluctable Destiny. <Macroprosopus.>)”
 Taurus/Gemini/Cancer.
-Hierophant/Lovers/Chariot.
+Hierophant/Lovers/Chariot.</center>
 {However, Breeze says it should be Leo - Gemini - Cancer, Teth Zayin Vau, 22.}
 
 Comment: This seems to be the Vision of God face to face that is the necessary ordeal for him who would pass the Abyss, as it were. A commission to be the prophet of the Aeon arising is given to the Seer. The God is the Hierophant in the Ceremony of Magister Templi.
@@ -763,6 +755,7 @@ ASP = 25, YHVD, God of Geburah of Briah (!) = ChIVA, The Beast. [JL: And VVVVV/P
 [JAE: ASP = 141.]
 
 [JAE: Crowley thinks 21, 20, 19 aethyrs = Hierophant, Hierus, Hegemon of his 8=3 initiation [as 23-24 aethyrs are the Kerubs at his initiation] 
+
 [Sidereal, not tropical, Zodiac = the body of Nuit]
 
 [Moon in Sidereal Gemini = Gemini/twin themes]
@@ -787,16 +780,15 @@ Nuit/Rahoorkhuit. Pillars Binah, throne Tiphareth. RHK alive in womb of Babalon.
 
 Before beginning: :et me behold my countenance in abyss (beginning Upanishads) 
 
-[Journey to the West: 4 visits to the Abyss. With Tibetans. WTF. https://www.youtube.com/watch?v=5G94CuUs21U]
+(A tangential discovery from Wikipedia: The Taishang dongyuan shenzhou jing (simplified Chinese: 太上洞渊神咒经; traditional Chinese: 太上洞淵神咒經; pinyin:Tàishàng dòngyuān shénzhòu jīng; Wade–Giles: T'ai-shang shen-chou ching; literally: "Most High Cavernous Abyss Divine Spells Scripture"), [here](https://en.wikipedia.org/wiki/Divine_Incantations_Scripture), [here](https://books.google.com/books?id=R3Sp6TfzhpIC&pg=PA375&lpg=PA375&dq=Scripture+of+the+Divine+Spells+of+the+Cavernous+Abyss&source=bl&ots=490dmgW7cH&sig=s6-CtkMAZJnSeXvENAEfiT2LsAM&hl=en&sa=X&ved=0CCwQ6AEwAmoVChMIh4a4j6noxgIVCU6ICh3WeAMG#v=onepage&q=Scripture%20of%20the%20Divine%20Spells%20of%20the%20Cavernous%20Abyss&f=false), [here](http://journals.cambridge.org/action/displayAbstract?fromPage=online&aid=788304)
 
-[The Taishang dongyuan shenzhou jing (simplified Chinese: 太上洞渊神咒经; traditional Chinese: 太上洞淵神咒經; pinyin:Tàishàng dòngyuān shénzhòu jīng; Wade–Giles: T'ai-shang shen-chou ching; literally: "Most High Cavernous Abyss Divine Spells Scripture"), https://en.wikipedia.org/wiki/Divine_Incantations_Scripture
+[Journey to the West: 4 visits to the Abyss. With Tibetans. WTF.]
 
-https://books.google.com/books?id=R3Sp6TfzhpIC&pg=PA375&lpg=PA375&dq=Scripture+of+the+Divine+Spells+of+the+Cavernous+Abyss&source=bl&ots=490dmgW7cH&sig=s6-CtkMAZJnSeXvENAEfiT2LsAM&hl=en&sa=X&ved=0CCwQ6AEwAmoVChMIh4a4j6noxgIVCU6ICh3WeAMG#v=onepage&q=Scripture%20of%20the%20Divine%20Spells%20of%20the%20Cavernous%20Abyss&f=false
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5G94CuUs21U" frameborder="0" allowfullscreen></iframe>
 
-http://journals.cambridge.org/action/displayAbstract?fromPage=online&aid=788304
+Levi’s image of two countenances: 
 
-Levi’s image of two countenances: https://36.media.tumblr.com/3c0467a7162d59fe577ba0e566c1f2c3/tumblr_mwwdx4APq51sap3sxo3_400.jpg
-https://36.media.tumblr.com/3c0467a7162d59fe577ba0e566c1f2c3/tumblr_mwwdx4APq51sap3sxo3_400.jpg
+<center><img src="https://36.media.tumblr.com/3c0467a7162d59fe577ba0e566c1f2c3/tumblr_mwwdx4APq51sap3sxo3_400.jpg"></center>
 
 3rd eye of Shiva must not open because it will destroy all because of foulness of vision; so 2 eyes open through the aeon [dualism perpetuates creation]. [QBLH: Most Holy Ancient One has one eye, Microprosopus, 2.]. See 22nd Aethyr: An adept (as in prior, tomb of CR) must cut off eyelids so he can behold and destroy. [Eye of AA] [Most High, IAIDA?]
 
@@ -826,7 +818,7 @@ Mark 13:14 14 But when ye shall see the abomination of desolation, spoken of by
 
 standing where it ought not = 0, not
 
-https://en.wikipedia.org/wiki/Abomination_of_desolation
+[Wiki on Abomination of Desolation](https://en.wikipedia.org/wiki/Abomination_of_desolation)
 
 “motionless abomination” (see Aethyr). Designation of Jupiter?
 
@@ -841,16 +833,16 @@ The rabbinical consensus is that the expression refers to the desecration of the
 Church Father John Chrysostom understood this to refer to the armies that surrounded Jerusalem and the factions fighting within it which preceded the destruction of the city.[10]
 
 The 1 Maccabees usage of the term points to the actions of Antiochus IV Epiphanes in the mid-2nd century BC. Specifically, he set up an altar to Zeus in the Second Temple in Jerusalem, and sacrificed swine on it around the year 167 BC.[citation needed] Many modern scholars believe that Daniel 9:27, 11:31 and 12:11 are examples of vaticinium ex eventu (prophecies after the event) relating to Antiochus.[11][12]
+
 Many modern Biblical scholars[13] conclude that Matthew 24:15 and Mark 13:14 are prophecies after the event about the siege of Jerusalem in AD 70 by the Roman generalTitus.[14] Some scholars, including Hermann Detering,[15] see these verses as a vaticinium ex eventu about Emperor Hadrian's attempt to install the statue of Jupiter Capitolinus on the site of the ruined Jewish Temple in Jerusalem leading to the Bar Kokhba revolt of 132-135 AD.
 
-
 Preterists believe that Jesus quoted this prophecy in Mark 13:14 as referring to an event in his 1st century disciples' immediate future, such as the siege of Jerusalem in 70 AD.[16][17]
+
 One commentator relates the prophecy to the actions of Caligula c. 40 AD when he ordered that a golden statue depicting himself as Zeus incarnate be set up in the Temple in Jerusalem.[18] This prospect however, never came to fruition since he was assassinated in 41 AD along with his wife and daughter.[19]
+
 Peter Bolt, head of New Testament at Moore Theological College, believes that the abomination of desolation in Mark 13 refers to the crucifixion of the Son of God; in other words, Jesus is referring to his own impending death.[20]
 
-
 If Abomination of Desolation = Zeus/Io Pater statue in the Second Temple = Chesed or Demiurge. [As here seen.] Also “changeless abomination”] (changeless nature of imagery. Also the demiurgic figure is seen on a throne behind pillars with sphinxes, which doesn’t *really* resemble the second temple, but is vaguely suggestive of a similar setup
-
 
 0=2?
 
@@ -867,7 +859,7 @@ Ape of Thoth = babbling mind that gets in way of the Silence of the Most High [B
 
 [JAE: Truth = AMTh. Whatsoever of truth that gains voice is a lie, as dual]
 
-***From now on, all statements in Aethyrs speak the language of the Neschemah and not Ruach [we also transition into Briah in next aethyr], meaning that they are paradoxical statements, and must be reverse and reversed again and again, and are true and false at once [NEITHER-NEITHER LANGUAGE]
+**From now on, all statements in Aethyrs speak the language of the Neschemah and not Ruach [we also transition into Briah in next aethyr], meaning that they are paradoxical statements, and must be reverse and reversed again and again, and are true and false at once [NEITHER-NEITHER LANGUAGE]**
 
 Signs up to 7=4 but no further he has them not. This is beyond Adeptus Exemptus and Crowley’s then extent of initiation.
 
@@ -877,13 +869,14 @@ Angel: Seeing this “God” (the man behind the curtain) is the Ordeal X—“t
 
 The voice of Ape of Thoth is pulse of heart and laboring of breast.
 
-KHR
 
-The 20th Aethyr, KHR.
+<center><h1><p style="font-family: Enochian Writing">KHR</p></h1></center>
+
+<center>The 20th Aethyr, KHR.
 Malkuth in Briah.
 “The path of Kaph (Atu X). The Hierus prepares the Candidate. The Vision of the Wheel of Fortune. The Three Energies of the Universe. <Path of Daleth and Adonai>.”
 Fire/Air/Gemini
-Aeon/Fool/Lovers
+Aeon/Fool/Lovers</center>
 
 Comment: “A guide is given to the Seer, his Holy Guardian Angel. And this is attained by a mastery of the Universe conceived as a wheel. The Hierus in the Ceremony of the Magister Templi.”
 
@@ -905,9 +898,9 @@ Jovial God.
 
 Proper beasts of Wheel: Rim is vivid emerald snake. Center is scarlet heart. Scarlet of heart and green of snake are more vivid than blinding white brilliance of Wheel (higher key scale?) Liber LXV imagery—3:17-18. At the top is Agnus Dei, lamb and flag; also we have beasts: wolf, raven. Lamb is brightest—it is the Great Deceiver. [It seems pure and white, so therefore distracts people from getting to center of wheel.] 
 
-	WOLF/NEPHESCH/MERCURY: Betrays greedy and treacherous (Lust of flesh)
-	RAVEN/RUACH/SULPHUR: Betrays melancholy and dishonest [No hostile force is hurtful… enemy is always oneself.] (Lust of mind) (Ravens of Dispersion = A’arab Zareq = Qlipha of Hod)
-	LAMB/NESCHAMAH/SALT: Deceives the very elect. (Simulations of pure prompting of the soul)
+**WOLF/NEPHESCH/MERCURY:** Betrays greedy and treacherous (Lust of flesh)
+**RAVEN/RUACH/SULPHUR:** Betrays melancholy and dishonest [No hostile force is hurtful… enemy is always oneself.] (Lust of mind) (Ravens of Dispersion = A’arab Zareq = Qlipha of Hod)
+**LAMB/NESCHAMAH/SALT:** Deceives the very elect. (Simulations of pure prompting of the soul)
 
 Lamb as drunk on blood of saints, the Chief of the lying spirits. Feasts on the sentimental type of aspirant (sentiment as “vile parody” of Neschamah, polluted by least virile elements of Nephesch [!!!!], leading to corruption of sin and vicarious atonement doctrines) 
 
@@ -924,6 +917,7 @@ Liquid flame of pale gold (Ut). (32º SR?) Solar dieties as springing from the j
 K&C of HGA. Crowley’s True Will is to lead men to K&C. He discovered this by Sammasati while in China:
 
 In the Noble Eightfold Path, the practice leading to the complete cessation of Unsatisfactoriness, Sammasati is counted as the second factor of the Samadhi Section, the 'Higher Mental Training'. The usual definition of sammasati given in the Discourses is as follows:
+
 "Bhikkhus. What is sammasati? This is call sammasati, namely, that a bhikkhu in this Dhamma Vinaya:
 "1. Contemplates the body in the body with effort, sampajañña and sati, eradicating covetousness and distress with regard to the world;[1]
 "2. Contemplates feeling in feelings with effort, sampajañña and sati, eradicating covetousness and distress with regard to the world;
@@ -943,7 +937,7 @@ Rupa / form				Malkuth
 Vedana / sensation			Yesod
 Sanna / perception			Hod
 Sankhara / tendency-impulse		Netzach
-Vinnana / consciousness		Tiphareth
+Vinnana / consciousness			Tiphareth
 
 Mahasatipatthana: Acknowledge name and form of object. observe sensory impression behind seeming actuality of object; perception behind sensation; inherent tendency of consciousness to have perception; etc. 
 
