@@ -122,6 +122,19 @@ In the 9th Aethyr and beyond, and Coronzom overcome, the text appeared to Crowle
 
 The remaining Aethyrs showed progressive visions of purity and grace, until the sequence ended. (My own experiences with the 30 Aethyrs, repeated in haphazard fashion in 2006 with a group of 7 individuals, can be found in *Ultraculture Journal.*)
 
+##Relation of Crowley/Neuberg's work to Dee/Kelley's
+
+Outside of Crowley's claims that he was the reincarnation of Kelley, the visions related in Bou Saada elucidate an immense amount of material from the Western Esoteric Tradition, combining imagery from the books of Genesis, Exodus, Daniel, Maccabees, Revelation, the Gospels and others; the various Mediterranean mystery cults; Islam; Dee & Kelly's work; Solomonic magick; Freemasonry; Rosicrucianism and, in particular, the initiation rituals and formulae of the Golden Dawn as well as the Book of the Law and Crowley's other channeled Holy Books. They form a "grand overview" of over 2,000 years of Western religious history, elegantly and precisely summarized into 30 concise visions that suggest high-degree Masonic initiations via mystery play, as in the Scottish Rite. 
+
+The following artifacts from Dee and Kelly's work explicity appear in *The Vision and the Voice*, where their meanings are elaborated beyond what was given in the *Spirit Diaries*:
+
+- The 30 Aethyrs themselves
+- The Enochian language
+- The Holy Table
+- The 7 names of the Sigillum Dei Aemeth, formed into a magic square
+- BABALON
+- The angel Madimi (Aethyr 17)
+
 ##Astrological Factors
 
 Though not calculated or timed by Crowley and Neuberg, James Eshelman later worked to analyze the astrology of each Aethyr calling itself as an attempt to isolate astrological influences on the visions from the actual content of the Aethyrs themselves. This is outside our scope for the present work but will be mentioned when appropriate here. Eshelman notes that the sun was in sidereal Scorpio (tropical Sagittarius) between the 28th and 5th Aethyrs, highly relevant to the sexual/destructive qualities of BABALON. 
