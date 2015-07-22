@@ -1563,7 +1563,7 @@ Ram's Eye [Aries?]: Med
 
 As we can see, neither method proves satisfactory at present.
 
-[ATTACH SIGIL]
+<center><img src="https://i.imgur.com/p9lTXpq.png"></center>
 
 [JAE: This has to be viewed from space, you can't see them all in one place from Earth; only in London do they approximate the horizon.]
 
