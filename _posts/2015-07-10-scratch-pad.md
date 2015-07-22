@@ -89,3 +89,6 @@ We can find a perfectly clear refutation of this attitude in the Enochian Aethyr
 --
 
 - Ashmole’s research into Enochian as birth of freemasonry?
+
+
+-There seems to be a recurring effort of the Enochian entities to strip away social conditioning. They not only urged the wife-sharing between Dee and Kelly [MADIMI and GABRIEL], they also initiated the passive homosexual surrender of Crowley to Victor Neuberg in the midst of the 14th Aethyr [Angel of 14th - check names in Chanokh]. Much of the doctrine of the *Vision and the Voice* overturns and disintegrates the symbology and restriction of Christianity; similarly, the Angels’ proclamation to Kelley that Jesus should not be worshipped as god, that there is no sin, that reincarnation is real, etc. suggests highly modern and modernizing beings. Reading the *Vision and the Voice*, for instance, one gets the odd sensation of a writer who could be this present author’s great-great-grandfather pronouncing social views that still seem shockingly progressive for the early 21st century.
