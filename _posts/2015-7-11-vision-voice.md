@@ -68,6 +68,8 @@ We may also ask, what of the Qliphoth? Early in my magical training (as a young 
 
 We are left to ponder the relation of the symbols of the Dragon, The Beast, BABALON and Coronzom to the Qliphoth as they relate to the Aethyrs and the overall apocalyptic drama of Revelation, the Spirit Diaries and the Book of the Law. 
 
+Note: Any direct mapping of the Sephirah to the Aethyrs is directly contradicted by the Angel of the 12th Aethyr, who says they interpenetrate but do not directly map. (See the scheme given in Equinox IV.2?)
+
 ##Operating Procedures
 
 Crowley's initial experiments were undertaken by modifying the 19th Call for each Aethyr, and then scrying the Spirit Vision—astral travel or willed imagination—which is outlined in the grade papers of the Golden Dawn. More precise methods, involving prepartory pentagrams and grade signs, are given in his later paper *Liber Chanokh*. None of this is found in Dee and Kelley; they are Golden Dawn methods. 9 years passed between his initial investigation of Aethyrs 30 and 29 and the Algerian experiment; this Crowley attributes to having increased his Grade or spiritual maturity to now be able to handle the visions. This factoring of the observer and their responses to messages, as well as changing information, perhaps, may be applied in reverse to Dee and Kelley. Crowley's line, again from the *Confessions*, is: "Anyone might use the Key for any Aethyr he chose, but he would either get no vision at all or expose himself to deception, and that probably of the deadly dangerous kind."
