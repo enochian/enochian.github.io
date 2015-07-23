@@ -68,6 +68,8 @@ We may also ask, what of the Qliphoth? Early in my magical training (as a young 
 
 We are left to ponder the relation of the symbols of the Dragon, The Beast, BABALON and Coronzom to the Qliphoth as they relate to the Aethyrs and the overall apocalyptic drama of Revelation, the Spirit Diaries and the Book of the Law. 
 
+More: Choronzon identifies himself as the "Head of the Dragon" (Cauda Draconis) in ZAX, reaching to Da'ath. In prior Aethyrs, Babalon and the Beast are identified as the Queen and Lord of the City of the Pyramids (Tablets), and ride each other above the Ruach; also are Binah and Chokmah, Babalon and Kaos.
+
 Note: Any direct mapping of the Sephirah to the Aethyrs is directly contradicted by the Angel of the 12th Aethyr, who says they interpenetrate but do not directly map. (See the scheme given in Equinox IV.2?)
 
 ##Operating Procedures
