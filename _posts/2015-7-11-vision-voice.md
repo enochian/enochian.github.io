@@ -2754,54 +2754,131 @@ Lust/Art/Aeon</center>
 
 Comment: “The fuller manifestation of the Holy Guardian Angel."
 
+[Official instruction for 5=6 *AND* 8=3 A.'.A.'. by Aiwass, the Voice of the Silence—Minister of Hoor-par-kraat(silence)(!!) Quintessence of Abramelin. The instruction for attaining the Angel and the Abyss.]
+
+[JAE: ZID = 21, Tiphareth, and AHIH, divine name Kether]
+[don't try to better this!!]
+
 Tiny spark of light, tentative, fanned by aethyr, darts like snake or sword, steadies and becomes Pyramid of light that fills the whole Aethyr [This may be the Dominus Liminus lamp mentioned in Liber A.]
+
+[dharana, it may be put out by wind of intellect=air. pyramid = fire]
 
 Pyramid = Angel = no form because of substance of light. He makes form visible only to destroy it.
 
-Light come to darkness
-Darkness become light
+[The HGA = pyramid = sacred phallus = initiator = 831 = aleph]
+
+Light come to darkness 
+
+Darkness become light 
+
 Light married with light
+
 Child is the other darkness, where they that abide have lost name and form.
 
-[YHVH formula terminating in Binah. Ain (Limitless light, Y) ->Kether (H), Chokmah (V), Binah (H final).] Aiwass wrote the Book of the Law to bring us to the NOX of Pan-secrets are like star, snake, sword.
+[YHVH formula terminating in Binah. Ain (Limitless light, Y) ->Kether (H), Chokmah (V), Binah (H final).] Aiwass wrote the Book of the Law to bring us to the NOX of Pan-secrets are like star, snake, sword.]
+
+[JAE: Darkness 1 = Nephesh; Light = Ruach, Darkness 2 = Neshamah. Ascending.]
 
 Unto NEMO does he deliver the secrets of the Operation so that the least of the children (H, Malkuth) can come to Binah. 
 
 New Operation instructions—of 91 days:
+
 1. Prepare chamber. Walls and roof white. Floor, carpet of black&white squares, border blue and gold.
-2. If town: No window. If country: Window in roof. Or in temple prepared for passing of Tuat (Cadaveris).
+
+2. If town: No window. If country: Window in roof. Or in temple prepared for passing of Tuat (Cadaveris or Adytum of 2=9 A.'.A.'. initiation).
+
 3. From roof, red glass lamp {sol?}, burning olive oil. Cleanse and make ready after prayer of sunset.
-4. Beneath lamp, altar {water?}, 4square, height 3x 1/2 of the breadth, or 3x 2x the breadth. Top is white wood, well polished. In center is triangle of oak wood {Geburah} painted scarlet.
+
+4. Beneath lamp, altar {water?}, 4square, height 3x 1/2 of the breadth, or 3x 2x the breadth. Top is white wood, well 
+polished. In center is triangle of oak wood {Geburah} painted scarlet.
+
 5. Upon oak triangle: Hemispherical censer, on three legs, of silver {luna?}, within a hemisphere of copper {venus?}, upon the top a grating of gilded silver {spirit?}. Burn Abramelin incenses {air?}
+
 6. Abramelin oil in crystal flask w/in altar {spirit?}
-7. Wear robe of Probationer no matter rank. (Hex shows Nuit/Hadit/RHK—and Adonai is golden Tau in midst of their marriage.)
+
+7. Wear robe of Probationer no matter rank. (Hex shows Nuit/Hadit/RHK—and Adonai is golden Tau in midst of their marriage. {Probationer robe = 5=6 robe})
+
 8. Alternate complex silk robe given.
+
 9. Wand of almond or hazel cut by own hands at Equinox, Solstice, day of Corpus Christi, or a Thelemic feast day.
+
 10. Engrave with own hand upon a gold plate the Holy 12fold Table (or some particular device). 4square w/in circle, winged (Hadit), attached to forehead by blue silk ribbon.
+
 11. Wear fillet of rose, ivy, or rue; burn it in censer every day after prayer of sunset.
+
 12. Pray 3x day—sunset, midnight, sunrise. If able, +4x prayers between sunrise and sunset. Each prayer at least 1 hr. constantly extend and more greatly enflame thyself.
+
 13. Carry out for 11 weeks. 
+
 14. During this time you make an invocation, fully inspired by Crown, and write in letters of gold on top of Altar.
+
 15. Copy invocation on sheet of pure white vellum, with Indian ink, and illuminate it according to fancy and imagination (Yesod/Yetzirah), informed by beauty (Tiphareth).
-16. First day of 12th week: Enter chamber at sunrise. Burn invocation in the lamp. {Repeating from aethyr-calling instructions.} Make prayer.
+
+16. First day of 12th week (sunrise of 78th day): Enter chamber at sunrise. Burn invocation in the lamp. {Repeating from aethyr-calling instructions.} Make prayer.
+
 17. Chamber will be filled with light insufferable for splendor (overcoming Hod), perfume intolerable for sweetness (overcoming Netzach?). 
+
 18. HGA appears. Remain in K&C all day. 
+
 19. Remain in temple for 3 days, sunrise to sunset, and obey counsel and suffer that which is appointed.
-20. For 10 days, withdraw fully into meditation, and harmonize the inner world with the Angel.
-21. Return to world and perfom that which has been appointed.
-22. If you continue in K&C, the Angel will at last bring you to City of Pyramids.
+
+20. For 10 days, withdraw fully into meditation, and harmonize the inner world with the Angel. {Total 91 days = AMN = compare 91 hours of each Aethyric operation in Aethyr 18. All 30 aethyrs = 2,730 hours = 113.75 days = 3.79 months, / 30 operations.}
+
+21. Return to world and perfom that which has been appointed. [Traditional Adept instruction-one is being brought to Understand. The Angel itself leads you from Tiphareth to the brink of the Abyss and then hurls you across.]
+
+22. If you continue in K&C, the Angel will at last bring you to City of Pyramids (8=3).
 
 22 paths but ONE serpent; 10 sephirah, but ONE sword.
-End of life and death. Breath goes still (peak kundalini).Everything you know buried in House of Father (Bet-Chokmah). 
+
+End of life and death (no phase of existence is experienced as death, only continual conscious re-incarnation? tulkus etc.). Breath goes still (peak kundalini).Everything you know buried in House of Father (Bet-Chokmah) [AL II:78. "Lift up thyself! for there is none like unto thee among men or among Gods! Lift up thyself, o my prophet, thy stature shall surpass the stars. They shall worship thy name, foursquare, mystic, wonderful, the number of the man; and the name of thy house 418"]. 
+
 You become Danae - slain beneath glory of vision
+
 https://en.wikipedia.org/wiki/Dana%C3%AB
+
 Suffering will make you mightier than all Kings of earth and Angels of Heavens, and all gods beyond heavens.. then you meet angel in equal conflict, see him for what he is, and he will kill you w red rain of lightnings.
+
 Killed by weight of pyramid...
+
 So shall it be until awake are asleep and asleep are awake (kalpa?)
+
 you are transparent to vision and voice, so hey only manifest to those until whom thou dost deliver them, according to dictates of Liber AL and the word Thelema.
 
 Aiwass minister of RHK, RHK the viceroy of an UNKNOWN KING
-Aiwass = 78, 8+70 = Cheth and A'ayin. Cheth = 418, formula of NEw aeon; A'ayin = Set/Hadit, eye, manifest in 418. (!)
-Influence of concealed one and wheel of Taro.All is equivalent of 671 and daleth.
 
-Error to see HGA in gimel. HGA is totally above abyss, in the supernals. Paths that cross abyss to Tiphareth (Gimel, Zayin, Heh) are the servants of Babalon and the Beast and the unspoken "others." As servants they have no name (NEMO), but we are of blood royal (cup of babalon?) and serve not, and hence we are less than they (lower numbers/more simplified). with all that they remai themselves, who have eaten pomegranate of hell
+Aiwass = 78, 8+70 = Cheth and A'ayin. Cheth = 418, formula of NEw aeon; A'ayin = Set/Hadit, eye, manifest in 418. (!)
+Influence of concealed one and wheel of Taro.All is equivalent of 671 (Adonai spelled in plenitude{?} and T'raa, gate{liber t'raa}) and daleth. [Aiwass was later revealed to be 93 to Crowley, as recounted in Equinox of the Gods]
+
+Error to see HGA in gimel. HGA is totally above abyss, in the supernals. Paths that cross abyss to Tiphareth (Gimel, Zayin, Heh) are the servants of Babalon and the Beast (Binah and Chokmah) and the unspoken "others." As servants they have no name (NEMO), but we are of blood royal (cup of babalon?) and serve not, and hence we are less than they (lower numbers/more simplified). with all that they remai themselves, who have eaten pomegranate of hell
+
+[persephone was earlier indentified as Daughter of Babalon.] {Doctrine of black brothers in Liber 333? they remain themselves in Da'ath} This is beyond 8=3 grade.
+[JAE: Master = Persephone, daughter who becomes Queen of inner realms in YHVH]
+
+NEMO sees and hears false, as the communication of the Magus in Chokmah is of the essence of lies.
+
+Vision = netzach
+
+Voice = hod
+
+when you hear it, you will be bereft of sense for hours, in a void place between heaven and earth {Liber Trigrammaton}, a la road to Damascus {the Star}
+
+Make it easy for them, and give all of yourself to those who have need. If I'm with you, you lack nothing, but if you lack me, you lack all. Faithful to promise if you are faithful to obligation.
+
+[this is a crucifixion-see below. but he is not abandoned {Luke}]
+
+Darkness on earth unto 9th hour.
+
+Matthew 27:45-46King James Version (KJV)
+
+45 Now from the sixth hour there was darkness over all the land unto the ninth hour.
+
+46 And about the ninth hour Jesus cried with a loud voice, saying, Eli, Eli, lama sabachthani? that is to say, My God, my God, why hast thou forsaken me?
+
+Mark 15:33King James Version (KJV)
+
+33 And when the sixth hour was come, there was darkness over the whole land until the ninth hour.
+
+[Eloi Eloi repeated at threshold of Abyss in Aethyr 11]
+
+Fallen to earth; skin trembling and body shaking from light.
+
