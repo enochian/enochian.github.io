@@ -1740,3 +1740,1068 @@ All outwith the 15th aethyr is delusion, unless you have the word and sign, auth
 Important teaching: "DARING IS NOT PRESUMPTION."
 
 Sign of Isis Rejoicing.
+
+MORE V/V
+
+91 days also mentioned in 8th Aethyr. 
+
+<Center><h1><p style="font-family: Enochian Writing">TAN</p></h1></center>
+
+<center>The 17th Aethyr, TAN.
+Netzach in Briah.
+“The path of Lamed. (The combination gimel, lamed, samekh.) The Vision of the Justice or Balance of the Universe.”
+Caput Draconis/Taurus/Scorpio
+Priestess/Hierophant/Death</center>
+
+Comment: “The symbol of the Balance is now given unto the Aspirant.”
+
+{Aethyrs are Masonic-style initiations on the astral, into the “invisible order”}
+
+[Netzach in Briah = the LOVE (Venus) necessary to make the link. Season]
+
+TAN = 59, a prime, yoni demanding justice. Instruction in formula of equilibrium.
+
+[JAE: TAN = 60, Samekh]
+
+Head of dragon in stone. Then. ***The Angel Madimi appears, from Dee and Kelly - but not the “mere elemental” suggested by Casaubon. She says: “Since all things are God, in all things thou seest just so much of God as thy capacity affordeth thee.” Pierce deeply into aethyr (more and more the case); TAN transforms judgment into justice. BAL = sword, TAN = balances. [Eshelman: Madimi's name derived from Madim, mars. From the tablet in Aethyr 22]
+
+[TABLET GIVEN: ENOCHIAN PLANETARY ANGELS VS HEBREW HEAVENS OF ASSIAH IN G.D.
+
+Jupiter = ZEDEKIEL = Tzedek
+
+Mars = MADIMIEL = Madim
+
+Sol = SEMELIEL = Shemesh [Mesopotamian Shamash]
+
+Venus = NOGAHEL = Nogah
+
+Mercury = CORABIEL = Kokab
+
+Luna = LEVANAEL = Levanah]
+
+Justice in Enochian = BALATANU, in 2nd Aethyr. BAL-A-TAN-U [JAE: BALTAN is justice, BALZIZRAS is judgment/ Bal and Tan in Heb=93]
+
+Balances: Motion about a point is iniquity—disturbs simplicity.
+Maat.
+breath disturbs equilibrium. 
+
+Middle pillar as a shining filament of quartz, from abyss to abyss, in middle winged disk of Hadit as any viewpoint whatever, and in alphabet of daggers: Torsion of iniquity—twisting one’s point of view is to obtain a false idea. Rashith ha-Gilgalim is first appearance of evil. 
+
+Angel in black diamonds {ain}: Woe unto second/Demiurge; first/Microprosopus (Kether overturned-see Aethyr 20). Hail Nuit and Hadit because they HAVE NO MOTION. space cannot move. The point goes: "I am the Magician and the Exorcist. I am the axle of the wheel, and the cube in the circle. "Come unto me" is a foolish word: for it is I that go.", but it doesn't matter how we represent these ideas, because if we did, we would be unable to measure phenomena. [" If this be not aright; if ye confound the space-marks, saying: They are one; or saying, They are many; if the ritual be not ever unto me: then expect the direful judgments of Ra Hoor Khuit!"]
+
+Angel as realized love, absorbed in Nuit. Severity and Mercy joined/balanced in Leo; Leo is one with Libra, as Lamed is the universe in extension.
+
+TAN = Mercy.
+
+Blue feather of Maat = justice = mercy. Truth is delight. 
+Lunar angel of Gimel. Justice is equity truth/falsehood. 
+5th chakra (lunar dew? Shiva Samhita - the One stands in the blue-silver moonlight in Gimel)
+
+"Your falsehood is but a little falser than your truth"
+
+[Assiah = astrological influences in literal space upon visions???]
+
+Truth = proximity to Adonai; therefore the only approximation of truth is Oath to Adonai. 
+
+The Weighing of Maat (Hall of Dead) begins the Chemical Wedding (ritual with Season)—if not found wanting, one spark of fire within, so dense and intense that it cannot be moved, not by air, water or earth. [Y HVH] [Spark as Yod]. FUCK.
+THE SPARK IS HADIT—and cannot be moved because it is already in motion at the limit of velocity. And this fire is that which it is written of "Hear thou the Voice of fire!" and the voice of fire = Liber AL, chapter 2, revealed to 666 by Aiwass.
+
+"And when, after all the Phantoms are vanished thou shalt see that holy and formless Fire, that Fire which darts and flashes through the hidden depths of the Universe, hear thou the voice of Fire." Oracles of Zoroaster.
+
+And method of K&C is in 8th Aethyr, word deadlier than lightning. Meditate on it in a place where no living thing is visible, only light of sun. With bare head. = next step. 
+
+holiness only = in relation to one.
+
+Arrow towards Ma'at. Samekh -> Libra -> Gimel. = LOGOS
+
+Camel's 10 days = 7 x 10 days of normal life. Man goes through desert nourished by Nuit; HGA. Triple cord of silver. 73 = camel = wisdom, chokmah. Crowned by eye in triangle, 73, aiwaz the eye in the star of hermes the messenger 418
+
+And through me descends influence of TARO 78 = Mezla = Aiwass the minister of silence
+
+This link, to star, cannot be broken by four princes, choronzom, or god, or affliction and feebleness of soul (!)
+
+join wings of eagle with shoulders of bull [taurus/scorpio]. shaft of light, ladder, by black cross of themis (maat as hegemon) thy path shall be open forevermore. electrum magicum bell of 7 metals/planets (Book 4)
+
+<Center><h1><p style="font-family: Enochian Writing">LEA</p></h1></center>
+
+<center>The 16th Aethyr, LEA.
+Tiphareth in Briah.
+“Kether. (Oath of pe.) The Overthrow of the Slave-Gods by the Beast 666.”
+Cancer/Virgo/Taurus: Pale Blue
+Chariot/Hermit/Hierophant</center>
+
+Comment: “The sacrifice is made. The High Priestess (image of Babalon) cometh forth upon her Beast and maketh this. <The Exempt Adept ought to write [H.V.F.A.](https://books.google.com/books?id=UD8XAAAAYAAJ&q=H.V.F.A.#v=onepage&q=HVFA&f=false) [have not found reference in this book]"
+
+LEA = 24
+
+[JAE: 39]
+virgo/taurus woman on bull (beast/babalon). zoophilia as central mystery rite??? [crowley talking nonsense] 
+https://en.wikipedia.org/wiki/Pasipha%C3%AB
+http://www.smh.com.au/articles/2004/02/04/1075853936802.html
+
+[mythology of god-as-beast coupling with maiden, bringing forth a her0] in this case giving birth to guardian of the 72 decanates of zodiac. [Also coupling of beast/babalon creates the shem and goetia?]
+
+[1909 conceptual revolution discussed in Eshelman, p. 250]
+
+angels of 7fold table. jehovah appears, cast down in new aeon [along with crowley's old-aeon conditioning/self-conscious ego] [also Ruach itself], 10 palaces broken [stability of 10 destroyed by instability of 11]. tower and walking on hands doctrine of holiness coming from within not tower of church. expounded by gunther. reference to sticking asshole up in the air (figures falling from tower) (later bottoming by neuberg?)
+
+knight of wands (yod of yod - again 14º SR ring?)
+
+servants of star and snake eat up earth like locusts.
+
+decreed by the Beast, CHAOS [i.e. Chokmah, NOT Crowley himself who only fulfilled this office terrestrially and momentarily] leo, servant of star snake, armed as horus.
+
+[JAE: Beast as collective Chiah/Chomah of humanity!!]
+
+Let it be soon, O God, my God! I ache for Thee, I wander very lonely among the mad folk, in the grey land of desolation.
+Thou shalt set up the abominable lonely Thing of wickedness. Oh joy! to lay that corner-stone!
+It shall stand erect upon the high mountain; only my God shall commune with it.
+I will build it of a single ruby; it shall be seen from afar off.
+
+beast sits upon the throne of the chaos of the ruach.
+
+the chosen have all power promised in bornless one over elements, angels and gods among them. but jehovah will be shamed. 
+
+vim patior, i suffer violence = 110, crux rosea, herupakraath, silentium, temperance, apostle (all forces that attack and wound king/jehovah are symbols of HGA) jehovah given first two penalties of freemasonry but not 3rd
+
+ruach/ego and any superficial aspects of adeptship are slain.
+
+beast prophet of lovely star - face of man and woman, w mark of beast (spirit) on brow, breast, palm. gigantic. uraeus crown. leopard skin, flaming orange apron of a god. nuit about him invisibly, heart is hadit within, RHK between feet, right hand flaming wand, left hand book of the law. silent.
+
+mystery understood by those who with ecstasy of worship in heart, clear mind and passionate body recognize AL as praterhuman.
+
+virgin led by angels of holy sevenfold table = babalon, true mistress of beast. BY THIS, THAT. (giveth herself to the beast... also vedanta?) rejecting of sexism of forefathers and bad attitudes to sex. 
+
+prophecy of frater achad
+
+again, the black cross of themis. foreshadowing of aeon of ma'at.
+
+<Center><h1><p style="font-family: Enochian Writing">OXO</p></h1></center>
+
+<center>The 15th Aethyr, OXO.
+Geburah in Briah.
+“The vision of the Rose of 49 petals, and of the Holy 12fold Table. Examination of the Candidate for Magister Templi."
+Libra/Earth/Libra
+Adjustment/Universe/Adjustment</center>
+
+Comment: “The mystic dance by Salome. The new Temple. The signs of the grades are received and the Adeptus Exemptus rejected."
+
+[Jones is recorded as saying that this Aethyr contains the true secret of the OTO]
+
+OXO = 460 = consecration of Adeptus Exemptus.
+
+[JAE: 540] Libra dancer (?), earth-tau Cross.
+
+Babalon harvests adepts for ordeal of abyss, and IS the abyss., weaves existence from threads of karma. 
+
+sex magic - lick up lives of men, souls sparkle from my eyes, gather the heads of them all that are baptised in waters of life. eateth up soul of man. prepared a feast for adepts, those who partake see god.
+
+Column of scarlet fire: "A similar Fire flashingly extending through the rushings of Air, or a Fire formless whence cometh the Image of a Voice, or even a flashing Light abounding, revolving, whirling forth, crying aloud. Also there is the vision of the fire-flashing Courser of Light, or also a Child, borne aloft on the shoulders of the Celestial Steed, fiery, or clothed with gold, or naked, or shooting with the bow shafts of Light, and standing on the shoulders of the horse; then if thy meditation prolongeth itself, thou shalt unite all these Symbols into the Form of a Lion." Zoroaster
+
+skirt of dancer a mighty god [BABALON] pillars are cross joined with rose of 49 petals. 
+
+49 petals of rose + center = 50 gates of binah (!!!!). OXO infers nox symbol, X in O, disintegration of cross in rose, adept in nuit.
+
+rose as ampitheater of rose-colored marble, 7 tiers of 7 partitions—those that sit are the 7 grades of the Order of the Rosy Cross [below abyss? RR+AC only?].
+
+[7 presumably =
+Neophyte
+Zelator
+Practicus
+Philosophus (and Dominius Liminus?)
+Adeptus Minor (Within and Without Portal)
+Adeptus Major
+Adeptus Exemptus]
+
+BUT Crowley footnotes grades 5=6 to 10=1 + Ain Soph!
+
+5=6 : Katharos x 6, Tiphareth = pure, open, free
+6=5 : Fortis x 5, Geburah = strong
+7=4 : TAN x 4, Chesed  = mercy that transformeth judgment into judgment
+8=3 : Samjah x 3, Binah = understanding
+9=2 : Pelah x 2, Chokmah = wondrous, miraculous / thick darkness
+
+ the size: the sun a ball thrown in this arena.
+
+emerald altar, w heads of 4 beasts (ATU XXI) in turq and rock-crystal [chokmah/malkuth] floor is of Nuit., full of universal mercury/quicksilver [JAE: semen of stars].
+
+Above the Altar is Pan. He is worshipped as follows in the various orders:
+
+5=6 : Man (Tiphareth)
+6=5 : Goat (Medes Khem) (Geburah)
+7=4 : Ram (Amoun) (Chesed)
+8=3 : Crab (Star-Sponge Vision) (Binah)
+9=2 : Ibis (Thoth) (Chokmah)
+10=1 : Golden Hawk (RHK) (Keyther)
+The secret/unnamed 11=0 (or 0=0) grade: AIN SOPH: Negative only.
+
+The altar is the Holy 12fold Table of OIT—the center of the Holy Table. Crowley attributes these 12 Enochian letters to the 12 signs of the Zodiac, as follows:
+
+Libra			Sagittarius		Leo
+Pisces		Cancer				Capricorn
+Cancer		Pisces				Cancer
+Libra			Libra					Virgo
+
+OIT also initials Olalam Imal Tutulu VII 7:6
+
+Pan is upon it, his voice is Silence, but the echo comes back from the walls of the ampitheater, and it is speech. 3&4 = days of quarter of moon, seventh day the sabbath; 3x4 = Sabbath of Adepts, the form revealed in Aethyr ZID. 
+
+This will be understood by a pool of clear water that is the sweat of thy brow. oil of 13 rivers from beard of macrop. 
+
+Table = universe, every star a letter of the Book of Enoch. The Book of Enoch drawn therefrom by inscrutable mystery , known only to Angels and holy sevenfold table. 
+
+Crowley is tested by Adepts from 5=6 to 8=3 and found prepared for each Sephira, though not at 9=2. 
+
+Languages:
+5=6 = Greek
+6=5 = Latin
+7=4 = Enochian
+8=3 = Sanskrit
+9=2 = Hebrew
+
+Most secret names of God, from Holy Table: ORLO, ILRO, TULE
+
+Each can be interpreted like INRI.
+
+And: 
+
+OIT = Invokes Fire
+
+RLU = Water
+
+LRL = Air
+
+OOE = Earth
+
+Read diagonally, every letter and letter combination is a devil, eil magick.
+
+I [GON] above LLL [Triad of Urs - suggesting .'. ?] dominateth table and preserveth peace of universe (Crowley is not sure why, thinks it may suggest Middle Pillar by shape.) I also = Sag, Samekh; C=Cancer, path to Binah through Cheth (Liber Cheth).
+
+The seven talismans contain the mysteries of drawing forth the letters.
+
+Letters of circumference declare glory of Nuit, that begins with Aries [PA = B = Aries] [There are 22 letters to a side if PA is counted  at beginning and not end as beginning the next sequence. Hence the 22 paths, Elements+Planets+Zodiac. i.e. Central 12 = Zodiac and Elements, 7 Seals = Planets, Outer Rung = 22 Paths] [Whence Hexagram? Planets again. Macro/microcosm, outwith is 333-see my notes from Dee.] 22 letters also = stars, Nuit.
+
+Adepts chant oratorio for seven instruments, one dominant theme of rapture, which contains universe in totality, bringing 333 to ruin. 
+
+There is one God within the Tablet, and letters of the stars in his crown [classic image of 12-rayed or starred crown] = Orion, Pleiades, Aldebaran, Alpha Centauri, Cor Leonis, Cor Scorpionis, Spica, Pole-Star, Hercules, Regulus, Aquila, Ram's Eye. = 12 stars, presumably, that represent the 12 zodiacal regions [Across the equinoctal line? Note my earlier research on plotting the 22 Hebrew letters across the equinoctal line of the galaxy {what is that thing called again?}.]
+
+[Crowley: Plutarch and Diodorus Siculus say that Isis = Sirius, Horus = Orion, Typhon = Great Bear]
+
+[Note: The Zodiac likely comes from Babylon, 1st millenia BC]
+
+Draw the sigil of that name on a map of the stars, and because some letters are alike, know stars = tribes and nations [again zodiacal attributions from G.D. - Crowley: Different systems = different systems of physical motion for certain groups]
+
+The letter of a star is but the totem thereof, and the letter representeth not the whole nature of the star, but each star must be known by itself in the wisdom of Thoth. [Also living stars]
+
+Attribution of Fixed Stars to Enochian Alphabet: Not worked out by Crowley, and pertains to grade 9=2. Work this out from the book discovered on Hebrew and the sky.  - J. H. Broome, Astral Origin of the Emblems, the zodiacal signs...
+
+Below are the Hebrew letters associated with the constellations of the zodiac (which map along the celestial equator) from Broome. Broome derives the attributions by noting that each Hebrew letter is actually derived explicitly or implicitly from the shape of each given constellation. The Enochian attributions given are then derived from Hebrew via the correspondences between Enochian and Hebrew given in Eshelman. No direct physical mapping of the Enochian characters to the constellations has yet been attempted.
+
+Aleph : Taurus (Aldebaran) : Na
+
+Bet : Gemini (Castor/Pollux) : [None given]
+
+Gimel : Cancer : Gisg, Or
+
+Leo : Daleth (Regulus) : [None given]
+
+Heh : Virgo (Spica) : Tal
+
+Vau : Libra (Zubenelakrab) : Un
+
+Zayin : Scorpio (Antares) : Fam
+
+Cheth : Sagittarius : Ur
+
+Teth : Capricornus : Ged, Gal
+
+Yod : Aquarius : Graph
+
+Kaph : Pisces : [None given]
+
+Lamed : Aries (Arietis) : Med
+
+Mem : Eridanus : Ger
+
+Nun : Southern Fish (Fomalhaut) : Drux
+
+Samekh : Band of Pisces : Gon
+
+A'ayin : Pleiades (Alcyone) : Van
+
+Peh : Beta in Taurus : [None given]
+
+Tzaddi : Orion (Betelgeuse, Rigel) : Pa {tz not star}
+
+Qoph : Belt of Orion : Don
+
+Resh : (Delta) Canis Major : [None given]
+
+Shin : Canis Major (Sirius) : Veh, Gal
+
+Tau : Southern Cross : Pa
+
+Thls seems unsatisfactory, likely because the Hebrew attributions in Eshelman have been derived FROM the Zodiacal attributions in Crowley, and are then mapped backward onto Broome's Hebrew. A simpler scheme might simply be sticking with the Zodiacal attributions of the Alphabet and then locating each star within the sidereal zodiacal quadrant.
+
+Un: Taurus
+Pa : Aries
+Graph : Virgo
+Ged: Leo
+Gon: Sagittarius
+Ur: Cancer
+Tal: Aquarius
+Drux: Scorpio
+Med: Libra
+Mals: Cancer
+Don: Pisces
+Fam: Gemini
+Van: Capricorn
+Leo: Ceph
+
+[Wait, no... or yes? eh?]
+
+Using Broome's attributions would tabulate as follows from the Aethyr:
+
+Orion: Pa
+Pleiades: Van
+Aldebaran: Na
+Alpha Centauri: [? in Centauri]
+Cor Leonis [Regulus]: [?] 
+Cor Scorpionis [Scorpio]: Fam
+Spica: Tal
+Pole-Star [Polaris, Ursa Minor]: [?[
+Hercules: [?]
+Regulus: [?] [mentioned twice-see note]
+Aquila: [?]
+Ram's Eye [Aries?]: Med
+
+As we can see, neither method proves satisfactory at present.
+
+[ATTACH SIGIL]
+
+[JAE: This has to be viewed from space, you can't see them all in one place from Earth; only in London do they approximate the horizon.]
+
+TAN TAN TAN (7=4) - note connection to Aethyr 17. 
+
+[JAE: Gulf in stars between Polaris and the Aries/Taurus/Orion group = Gemini, Cancer, Auriga, Perseus, Andromeda = the connecting paths across the Abyss]
+
+JAE: "the real governance of the world is by those who give freely of all they have."
+
+All this communicated only by brilliance of table. 
+
+Rosy Cross of 49 petals set up on summit of a pyramid, all dark, exceeding light behind.  - black pyramid is black diamond (AIN SOPH).
+
+Rose = sunset and dawn, Cross = Noon, heart of rose = secret light of midnight [Resh as Rosy-Cross/building pyramid]
+
+"Glory to God and thanksgiving to God, and there is no God but God. And He is exalted; He is great; and in the Sevenfold Table is His Name writ openly, and in the Twelve-fold Table is His Name concealed."
+
+Circle of the Sabbath (Shabbathai, Saturn, 7). Sabbath of Adepts = KC HGA. Shabbath = we are with the adepts in Saturn who are at est. 
+
+with song and dance and wine and fair women do they make merry. and every hostel is their palace, and every maid their queen. 
+
+Divorcing of 5 and 6 by the word ARBADAHARBA.
+
+voice of silence = HGA as well as chasmal/Daleth, speaking silence
+
+JAE: Adepts may be actual initiators from various worlds.
+
+<center><h1><p style="font-family: Enochian Writing">VTA</p></h1></center>
+
+<center>The 14th Aethyr, VTA.
+Chesed in Briah.
+“The vision of the City of the Pyramids. The Reception of the Master of the Temple."
+Capricorn/Caput Draconis/Taurus : Amber
+Devil/Priestess/Hierophant</center>
+
+Comment: “The shrine of darkness. Final initiation into the grade of Magister Templi."
+
+[79] goat dragon stag. 
+
+[JAE = 16, lonely alone elevated / elevated exalted high / woe alas
+
+This is attributed to Chesed instead of Binah, perhaps as it is Chesed which is experiencing and being dissolved into Binah and not Binah itself. 
+
+*Dark Night of the Soul* as a text of the 7=4 grade.
+
+Saturn conceived as dragon Theli, referred to Binah (this dragon appears in Sefer Yetzirah). Also serpent of Kundalini that eventually becomes serpent eating its own tail (Nuit) (!) python = typhon = 86 in latin, serpens, draco niger, sapientia
+
+Chapter VI:
+
+1. In proof of these things, and witnessing faithfully are the Universe, the Year of time, and Man himself, the Microcosm. He fixed these as testimonies of the Triad, the Heptad, and the Dodecad; the twelve constellations rulers of the world, the Dragon (THELE) Tali which environs the universe, and the microcosm, man.
+
+The triad, fire, water, and air; the fire above, the water below, and the air in the midst. The proof of which is that air is a participator with both.
+
+2. Tali, the Dragon, is above the Universe, as a king on his throne; the sphere in the year as a king in his State, the Heart of man as a king in warfare.
+
+And our God made the states of opposition, good and evil, good from the good, and evil from the evil. Happiness is reserved for the just, and misery for the wicked ones.
+
+Python vs spjinx, python surrounding and devouring the universe. hod to sphinx netach to python. lower sephirah all destroyed (see notes on dragon subsuming lower 7 sephirah from 4=7 gd)
+
+Rose IS Adept. Rose is infinite nature, Cross is finite.incarnate.
+
+Cross = Unfolding of Man of Earth or Aspirant
+Rose = Hermit or Master
+Rose-Cross = Lover or Adept
+
+waters of death in counterpoint to waters of life in aethyr 15. Nun
+
+Hour of veil of Temple rent in twain from 18º SR.
+
+to accomplish great work in tiphareth one must be initiate to binah. 
+
+Destroying angel that must be invoked only in darkness.
+
+[There is a 6 1/2 hour gap here which is where Crowley was sodomized by Neuberg on Da'leh Addin, in circle of rocks inscribed with words of power. He had to tear his repression from his heart before he could cross the Abyss. He was now disconnected from his personality as a Babe of the Abyss.]
+
+Binah as *absolute negation* of light. Akasa is black egg - even if you are master of pentagram and rose (50 gates of binah. 50=scorpio. even negates the spark? Black is the color of the HIGHEST as it has unresistingly absorbed all light (see LXV). 
+
+JAE: The angel is Hadit, the spark, Chaos, and Chokmah. He stands in sign of Apophis-Typhon.
+
+CHAOS is my name, snake that devoureth spirit of man (Liber LXV. HGA/Hadit?)
+
+pillars of neophyte crowned w flame, vault lit by rose, abyss is eye of hawk, but in great sea is nothing.
+
+NOX is key of abyss
+
+shapes of rocks appear as masters, perfectly still
+
+They are in traditional AA robes and have beheld KBOD, kavod, Kether, glory ineffable. 
+
+Phallus = Pyramid = 831 greek qbl. (Isn't 831 one of the letters spelled in full?) Pyramid is "also a Phallus which dies to itself to communicate Life to others."
+
+you wanted 4 powers, 7 delights, 12 emancipations, 22 privileges and 49 manifestations - and you have become as one of these. They are PYRAMIDS, their hoods and robes pyramids. pyramid is temple of initiation AND a tomb. there is no life in them. they have thrown away their sandals of light (ankh = life, into Ruach). no more visions or glories, or beatific vision of tiphareth—there are none of the lower sephirah here, for here is UNDERSTANDING. one with Primeval things. so is pure wisdom pure chance [CHAOS MAGICK], pure understanding is silence
+
+70 (Eye) / 333 = 0.210 repeating, NOX
+
+333 is referred to as Triple Aleph (? ah - 111 x 3)
+
+They are shut up and All their achievements are gone from them: "I saw Satan like lightning fall from Heaven." Like 10:18—as a flaming sword dropped through Abyss, where four beasts watch and ward, cast into the sphere the adept will do its work in—the samkharas are reconstituted below the abyss so that they can function as a 4=7, in the grade which their sphere of gravity tends. 
+
+50 are the gates of Understanding, and 156 are the seasons thereof. And the name of every season is Death (106). Nun/Scorpio symbolism. Seasons = lunar months.
+
+Binah = salt sea, root of alchemical salt due to cubical formation of salt crystals (? 3d?)
+
+210 also 7 x 6 x 5
+Ayin/3 x Aleph = The Eye in the Triangle: so that the Night of Pan is that Light Ineffable.
+
+<Center><h1><p style="font-family: Enochian Writing">ZIM</p></h1></center>
+
+<center>The 13th Aethyr, ZIM.
+Binah in Briah.
+“The Garden of Nemo. The Work of the Magister Templi."
+Leo/Sagittarius/Aquarius: Green-Gray
+Lust/Temperance/Star</center>
+
+Comment: “The emergence of Nemo into the world; his work therein. This is the first mystery revealed to a Magister Templi."
+
+[JAE: 57, caverna, mors]
+
+[Solar opening - transmutation middle - saturnian end]
+
+Leo/Aquarius polarity as polarities that open Liber Samekh.
+
+Angel of Samekh in waters of Aquarius with shine of Leo Sun on them. 33 thunders (Call 4).
+
+Life dawns. Illusion of Matter destroyed. Flowers in garden that are girls (ATU XIX) In the water of Binah [Opal = Hod?] NEMO = Nun (Fish) E (Ares/Ram) M (Head of man that has hanged) O (Phallus of Goat)
+
+N = Sh
+H = R
+M = Y
+A'a = Th
+
+[NHMA'a = Neschamah? Nehemah/Nehemoth qlipha of Malkuth]?
+
+RShITh = Beginning = 910 = 13 x 70 = The Eye (a'ayin) that is One (Achad, 13); 91 Amen x 10 [Note use of 91 in Aethyr 18. Partaking of Aethyr x 10 - Aethyrs in Atziluth, the Beginning?]
+NHMO = 101
+But Crowley lists 
+NHMA'a = 165 = 11 x 15
+
+[In Latin NEMO = 41, amor, love, fides, faith (Binah), Babalon. In greek 165 = from the sea. all letters suggest initiation to Binah: Scorpio, Water; Aquarius (Water) and Capricorn are both ruled by Saturn]
+[ShRYTh = You have striven, from Jacob]
+
+NO man hath beheld face of father = NEMO. [More references to Jacob.] NEMO tendeth garden—this garden is the world itself, the world of one's disciples, and the world of one's mistresses, watered with waters that were called death. 
+
+Prepared for beauty and delight thereof, and because Tetragrammaton Elohim planted a garden eastward in Eden. . every flower brings forth a maiden, but one brings forth a new NEMO male-child [successor-Rosicrucian doctrine], but you know not which.
+
+Pacific Seas, Kashmir, Sahara, Scottish Highland.
+
+A secret house of A.'.A.'. surrounded by yews (a secret sign to brothers of a resting place). A man writing a book. Each word/song is a flower/maiden.
+
+He torments the flowers, as heavy is the work. Karma yoga from on high = you don't see the rewards.
+
+Work performed in absolute (lucid) darkness; on ROOTS of plant; even if events are outwardly hurtful they are exactly what each plant needs—the Ordeals (NOT conducted by occult teacher but by S.'.S.'.) Compassion, as in Tzaddi 26-27 - rooting out of weeds and watering of flowers
+
+Man of Earth = Adherent
+Lover = Giveth his life unto the work among men
+Hermit = Solitary, giveth only his light unto men [Up in a cave etc...]
+
+These are the three True Grades of the Order. [Does this make me a Lover?]
+
+Ability of 8=3 to understand anything by waiting for answer to come into his mind (but Eshelman says 1=10 will already possess it—ask a question and the answer will appear upon clear formulation of question)
+
+[I try asking about Devi. Answer is "give her time"]
+
+NEMO must understand everything
+
+Aethyrs 1-15 there is no vision and no voice save for he that is NEMO. if you look for vision and voice therein you are led astray. (nothing outside one's own samadhi? no subject/object?) If you go past Aethyr 15 and are not NEMO, you will be led astray. 
+
+All outwith the 15th aethyr is delusion, unless you have the word and sign, authority from superior (George Cecil Jones), and he was licensed an 8=3 in December 1906.
+
+Important teaching: "DARING IS NOT PRESUMPTION."
+
+Sign of Isis Rejoicing.
+
+<Center><h1><p style="font-family: Enochian Writing">LOE</p></h1></center>
+
+<center>The 12th Aethyr, LOE.
+Chokmah in Briah.
+“The path of Cheth. The bearer of the Sangraal. The Black Brothers."
+Cancer/Libra/Virgo: Russet [All symbols of Babalon]
+Chariot/Adjustment/Hermit</center>
+
+Comment: “The Second Mystery: The Cup-bearer of Babalon the beautiful. The Holy Grail manifested to the Magister Templi, with the first knowledge of the Black Brothers."
+
+[This is the central task of 7=4 in advance to 8=3; the doctrine is solidified in LIBER CHETH.]
+
+Two pillars of flame (see Aethyr 30, 21, 19, 15; 14 where they are pillars of Neophyte and explicitly crowned with flame). Chariot of white fire. ATU VII. Drawn by 4 sphinxes from vault of adepti. Vault of night above (see Waite deck). Carries Sangraal (old Celtic not Christian... consensus is that grail myths were Christian drawn from Celtic imagery).
+
+[Sphinxes = each partakes of nature of others, i.e.=16 sub-elements. These symbols were placed about the Tablets in the Vault in GD (JAE p. 311)—"Forget not that the Tablets and Kerubim are the guardians of the Vault of Adepts."]
+
+[Hargrave Jennings advanced Rosicrucian interpretation of grail as vagina; Wagner developed this in the opera Parsifal, which became a major thematic source of OTO mythology]
+
+[Serious review of Parsifal]
+
+<center><iframe width="640" height="480" src="https://www.youtube.com/embed/uD8v2213TeE" frameborder="0" allowfullscreen></iframe></center>
+
+The cup here radiates a "ruddy glow" (menstruation); seen in ATU VII of Thoth deck. Perfume of RHK, from cakes of light. The cup is that of Babalon, filled with blood of saints. = fermented by her breath (air?)[aging of adept, time has been taken], wine of sacrament, wine of the sabbath, in holy assembly she has poured it out for worshippers, and they have become drunk thereof, so that face to face they have beheld father (become NEMO). by her murders and fornications she seduces the world - manifested truth of father (Y). (Babalon = H?)
+the glory of my father = 45 = adam (amth, truth, or adam kadmon?)
+
+true worshippers of the highest is common phrase in nochian. HOATH IAIDA = 116 = miyyeyno, from his wine, and LALHIM- unto the gods
+
+Every thought is destroyed by the blood (NOX). Its name is Compassion=the sacrament of suffering, partaken of by the true worshippers of the Highest. [Compassion the Vice of Kings - they get high on it]
+
+[SO = the Macguyver ayahuasca vision IS the cup of Babalon—drunk on the blood of the saints [the entire Qliphothic tree]—the compassion of the Tibetans. Also, obviously, the practical application is Tonglen.] In this ecstasy there is no pain, the passivity is giving up self to the beloved.
+
+Mystery of Babalon, mother of abominations, she has given herself to everything and made herself the servant of each, and is become the mistress of all. Her weakness subdues their strength [the Yeshe Tsogyal thing that Lal showed me]. In that union thou didst UNDERSTAND< therefore thou are understanding. VII VII:41, 43-44. [Nature of BInah initiation]
+
+Babalon = "Lady of the Night" = Lady of Nuit
+
+Babalon = Love, Love = 1, 1/infinite loves, each love = 1 = The One. [shines through every love we have]
+
+Mighty Mother = isis = babalon
+Babalon = Queen of City of Pyramids
+Beast = Lord of City of Pyramids
+
+[Description of Beast fits Ankh-f-n-Khonsu from Stele]
+
+Numeration of Babalon in greek = 555. THE BEAST is the Lord of the City of Pyramids. The full mystery of the Beast is given in "The Urn" (9=2). 
+
+From the Urn:
+
+Dec. 23.
+
+Ether. The bride had picked up a book at random from the shelves of the Hotel. “Two parts of Hydrogen combine with one of Oxygen,” she read, “to form water.” “The acceleration due to gravitation is 32 feet per second.” “The beast!” she cried; “he does not understand Love!” The above is a parable for 9°=2ás, in staircases. But—which side are you on; and why? [beyond Binah?]
+
+She will not rest from her adulteries until the blood of all life is gathered up therein. Father renewed eternally, universe unfoldeth itself as a rose, and shutteth itself up as a cross that is a cub (18º SR). 
+
+Final stage of YHVH formula
+
+Aethyrs = Rose (universe unfolds like a rose) = Nuit expanding
+Cross = Cubic stone of material universe inside = Hadit collapsing inward/folding (18º)
+
+This is comedy of Pan, mystery of Dionysus Zagreus, secret of Rosicrucians, heart of ritual of Vault of Adepti in Mt. Abiegnus. [= IXº OTO] [Adept born by HGA to Abyss, all stages from 5=6 to 8=3 technical changes/processes of K&C where one pours oneself wholly into what one loves most]
+
+Exodus 12 [as IXº OTO = eating of the Elixir (blood). ?.] Spilling of blood of Lamb as ritual of BB, for they have sealed up pylon w blood to hide from angel of death [immortalists?]
+
+Description of BB sounds like the modern OTO. eaten up by time that has cheated them to serve him (again immortals?)
+
+Formula of 156 = constant copulation or Samadhi on EVERYTHING. (oath of abyss)
+
+Secret interpretation of ABRAHADABRA, which can only be understood by NEMO+ [5 A's interpenetrate 6 consonants, 5=6]
+
+The only power that can endure is the power that descends in chariot from city of Babylon, city of 50 gates, the gate of the God On [OTO word]. [Geburah strength is RECEIVED from Binah]
+
+[Bet Aleph Bet Aleph Lamed A'ayin Nun] = BAB Gate, AL God, ON VIº OTO word (120). But the true spelling is post-10th aethyr]
+
+ON = the key of the vault, 120. [ON = solar-phallicism: Sun, IXº] [120 = Key of 5=6 Vault GD, 2=9 AA]. 120 also=Samekh spelt in full
+
+BAB AL ON = 156 = 12 x 13, the Unity of Kether, HUA AChD, for he is manifested in her; 156=number of letters in a watchtower.; the majesty and beauty derive from Chokmah.
+Wisdom = man, understanding = woman [KAOS-BABALON] Not until you have perfectly understood can you become wise. 
+
+Aethyrs bound up not only with Sephira but with paths. Atheyrs interpentrate and surround universe where sephiroth are established, so the order ≠ order of Tree. Only in a few places do they coincide. knowledge of Aethyrs deeper than knowledge of sephira (Da'ath), for the Aethyrs contain the knowledge of the Aeons and of Thelema.
+
+"And lo! I saw you to the end" (Perdurabo)
+
+Light veild by 6 children.
+
+<Center><h1><p style="font-family: Enochian Writing">IKH</p></h1></center>
+
+<center>The 11th Aethyr, IKH.
+Kether in Briah.
+“Yesod. The frontier of the Abyss.”
+Sagittarius/Fire/Air: Maroon
+Art/Aeon/Fool</center>
+
+Comment: “Now cometh the frontier of the Holy City; the Magister Templi is taken into the Abyss."
+
+IKH = 361, Supernal Triad, Hexgon, Malkuth [Tree}, also Adonai Ha-Aretz (MLKTh). 
+
+[JAE: 35, gobal, boundary]
+
+[Yesod/Mars{80}. Symbolism of 2=9 GD]
+
+[JAE: This vision is a projection of the personality's desperate struggle to preserve its projections! the automatic consciousness, habitual thought and reaction {Hubbard: Reactive Mind} are about to fall and are freaking out]
+
+Kamea of Moon. {Why Yesod if this is supposedly Kether? Gimel?}
+
+Angels on Elephants, YHVH shields, elephants (elephants = ganesh = yesod) thunderbolt of zeus.
+
+Shu (YSD) Crowley: Shu = Zeus (?) [because Shu and Zeus both = air]
+
+Air = Fool, hence Aleph = Kether? also yesod = air and gimel, moon = kether? what of bet?
+
+Army defended by 9 mighty towers (Yesod) of Iron (Geburah) [braced tension of Asana of 2=9] w warriors in silver armor (Yesod). whirling wind yesod
+
+[Holy City diagram from the GD 2=9 ritual—every word equates to 9, yesod]
+
+[related to troops of angels and castles in the Dee/Kelley vision of the golden seal?]
+
+<center><img src=https://2.bp.blogspot.com/_JmOhe-3opIc/TRP7HFGIn1I/AAAAAAAAAgk/WcWs4T0pMEs/s1600/crawley_watchtowers.gif></center>
+
+<center><img src=http://www.eli-lsmerchantile.com/blog/assets/0_0_0_0_250_373_csupload_49600312.jpg?u=635038700848336146></center>
+
+Armies set against outermost abyss and Choronzom (see that classic alchemical image of angels on ramparts against 4 princes, reproduced in Thoth card "Power," four of disks) [I believe the demons listed are Abramelin Sub-Princes - Oriens, Paimon, etc. But I can't find it. Taschen alchemy book? Goddard?]
+
+[JAE: Choronzon is the Quintessence of the 4 elemental princes of evil, forming perhaps the {averse?} pentagram. i.e. I got it right in my demonic binding. 328 Abramelin demons+5, pentagram, man = 333. Or is it the averse pentagram? But the Princes are already listed in the 328.
+
+4 Princes
+8 Sub-Princes
+316 servitors
+
+=328 total, +5 (man) = 333
+
+111 spirits common to 4 oriens, paimon, ariton, amaimon = 111 (Aleph)
+53 common to astarot and asmodee 
+10 common to amaimon and triton
+15 common to asmodee and magot
+32 to astarot [qblh]
+65 to magot and kore [adonai]
+16 to asmodee 
+49 to belzebud [babalon]
+8 to oriens
+15 to paimon
+22 to ariton [trumps]
+20 to amaimon
+]
+
+[4 princes, etc, should have already been mastered in 5=6; 333 is above these = the adept's own mind/self/being/ego?]
+
+stability set in air, change (2=9 degree)
+
+by 3 + 3 + 3 (9) he has made firm the foundation against the earthquake that is 3 (333) (Binah?) 9 = changefulness of numbers 333 brought to naught [0?] For whatever number you cover it with, it appears unchanged. 
+
+9 x 7 = 63. 6+3 = 9
+9 x 127 = 1143. = 9
+9 x 9 = 81 = 9
+9 * 63189 = 568701 = 27 = 9 (!!!)
+
+Wiki:
+
+In base 10 a positive number is divisible by nine if and only if its digital root is 9.[8] That is, if you multiply nine by any natural number, and repeatedly add the digits of the answer until it is just one digit, you will end up with nine:
+
+2 × 9 = 18 (1 + 8 = 9)
+
+3 × 9 = 27 (2 + 7 = 9)
+
+9 × 9 = 81 (8 + 1 = 9)
+
+121 × 9 = 1089 (1 + 0 + 8 + 9 = 18; 1 + 8 = 9)
+
+234 × 9 = 2106 (2 + 1 + 0 + 6 = 9)
+
+578329 × 9 = 5204961 (5 + 2 + 0 + 4 + 9 + 6 + 1 = 27; 2 + 7 = 9)
+
+482729235601 × 9 = 4344563120409 (4 + 3 + 4 + 4 + 5 + 6 + 3 + 1 + 2 + 0 + 4 + 0 + 9 = 45; 4 + 5 = 9)
+
+There are other interesting patterns involving multiples of nine:
+
+12345679 x 9 = 111111111
+
+12345679 x 18 = 222222222
+
+12345679 x 81 = 999999999
+
+This works for all the multiples of 9. n = 3 is the only other n > 1 such that a number is divisible by n if and only if its digital root is n. In base N, the divisors of N − 1 have this property. Another consequence of 9 being 10 − 1, is that it is also a Kaprekar number.
+
+The difference between a base-10 positive integer and the sum of its digits is a whole multiple of nine. Examples:
+
+The sum of the digits of 41 is 5, and 41-5 = 36. The digital root of 36 is 3+6 = 9, which, as explained above, demonstrates that it is divisible by nine.
+
+The sum of the digits of 35967930 is 3+5+9+6+7+9+3+0 = 42, and 35967930-42 = 35967888. The digital root of 35967888 is 3+5+9+6+7+8+8+8 = 54, 5+4 = 9.
+
+Subtracting two base-10 positive integers that are transpositions of each other yields a number that is a whole multiple of nine. Examples:
+
+41 - 14 = 27 (2 + 7 = 9)
+
+36957930 - 35967930 = 990000, a multiple of nine.
+
+This works regardless of the number of digits that are transposed. For example, the largest transposition of 35967930 is 99765330 (all digits in descending order) and its smallest transposition is 03356799 (all digits in ascending order); subtracting pairs of these numbers produces:
+
+99765330 - 35967930 = 63797400; 6+3+7+9+7+4+0+0 = 36; 3+6 = 9.
+
+99765330 - 03356799 = 96408531; 9+6+4+0+8+5+3+1 = 36; 3+6 = 9.
+
+35967930 - 03356799 = 32611131; 3+2+6+1+1+1+3+1 = 18; 1+8 = 9.
+
+He who understands (Nemo) must go out to outermost abyss to speak with he that is set above the 4-fold terror, the princes of evil, even unto Choronzon himself.
+
+Only the servants of BABALON may deal/speak with him and his servants, because they have UNDERSTANDING, and 333 and his servants do not (i.e. do not extend past Da'ath).
+
+[Aethyr 11 = 11 = Da'ath?]
+
+Abyss = sickness of aspiration, sickness of will, sickness of essence of all, and there is neither word nor thought wherein the image of its image is reflected [reflected = yesod?]
+
+If you go to the Abyss without understanding, you bow to the chains of Choronzon (chain = magical weapon of Da'ath, used to bind Da'ath in GD rites, 333 links) [ie are ruled by machine of reactive mind]. Then you become a black brother, "bearer of corruption." poisoning the fire from heaven instead of letting it turn you to ash
+
+Interesting: You have to be NEMO *before* facing 333.
+
+universe is shaken/not shaken by 333. [JL: not shaken = disruption of stability of change? if change = stability, to NOT shake = destabilize. formula of Black Brothers = resistance to change, change being Chokmah 9=2 even as 2=9, Yesod]
+
+Geburah/Chesed/Victory/Splendor/Beauty/Foundation/Kingdom
+
+Malkuth = 1 pearl, set in the 72 pearls of the quinaries of teh zodiac, garnished with 4 kerubs as guardians, graven w seal of righteousness (Tzediq Yesod Olam, Yesod?), generation secret core...
+
+Mystery of Peter or Cephas, Rock or Stone: KHAOS in Greek = 729 = 9^3. {Change is Stability?}
+
+stability = 80 (YSOD) = Peh, Mars. War is the price of stability.
+ 
+To understand secret of Outermost Abyss you must assume the form & mask of the angel thereof. Because if you have a name (ie are not NEMO), you are lost. If there is one drop of blood left in your cup, you're fucked.
+
+The threads that bind sankharas together to form ego must be severed
+
+https://en.wikipedia.org/wiki/Sa%E1%B9%85kh%C4%81ra
+
+The last words of the Buddha, according to the Mahāparinibbāna Sutta (in English and Pali), were "Disciples, this I declare to you: All conditioned things are subject to disintegration – strive on untiringly for your liberation." (Pali: "handa'dāni bhikkhave āmantayāmi vo, vayadhammā saṅkhārā appamādena sampādethā ti.")
+
+Eloi, Eloi—there is no help from HGA here. Anguish of Gethsemane.
+
+<Center><h1><p style="font-family: Enochian Writing">ZAX</p></h1></center>
+
+<center>The 10th Aethyr, ZAX.
+Malkuth in Yetzirah.
+“The Abyss. Choronzon, his Nature."
+Leo/Taurus/Earth: Black
+Lust/Hierophant/Universe</center>
+
+Comment: “The Abyss."
+
+[JAE: ZAX=408. Malkuth in Atziluth = crossing over into Atziluth, realm of Master. Malkuth as maker of form, projector of every possible projection onto screen of senses="Master of form, and from me all forms proceed."]
+
+No being, from which constant forms come forth.
+
+Adam opened the gates of Hell by saying:
+
+<center><p style="font-family: Enochian Writing">ZAZAS ZAZAS NASATANADA ZAZAS</p></center>
+
+Hebrew = 406 = ThV, Tav, Saturn/opening of pit.
+
+[JAE: This is what NEUBURG experienced in the Aethyr, and is NOT Crowley's experience of crossing the Abyss.]
+
+[There were three pigeons sacrificed around the triangle. Crowley obscures the fact here that he put HIMSELF in the triangle, robed and in Thunderbolt Asana, to have 333 invoked on himself as the living material basis, in concentration and silence, retired into meditation. JAE = See Tarot cards for what Crowley experienced. Solar-phallic bhakti taken to peak expression, flashpoint; concentrated in one's own Inner Teacher; and then dissolved into infinite dark of space]
+
+[Choronzon thus manifests in the Qlipha of Frater O.M. himself, that which is left when the Adept is withdrawn into meditation. Neuberg insisted till late in life that he ACTUALLY fought a demon. Neuberg=super psychic. Neuburg's circle was attuned to element of Air—i.e. he was making sure that HE HIMSELF DID NOT CROSS THE ABYSS by getting sucked into Crowley's vortex. So he was kept in air and his intellect was kept busy. Circle is surrounded by Air and Yesod names: YHVH and SDY AL ChY; and ARARITA. Added, the names = 1202, BShA'aRICM, "within your gates" (gates of prior aethyr, or 50 gates of binah?) he is given air weapons: quill of scribe and magic dagger. This, plus the Oath, was designed by Crowley so Neuburg would not get sucked into the vortex prematurely.]
+
+I am the Master of Form [a lie as it is not a unified being], and from me all forms proceed.
+
+I am I. = assertion that blocks transcendence of the Abyss; the motto of the Dark Brothers in Aethyr 12.
+
+**DO NOT DERIVE ANY DOCTRINE FROM THE UTTERANCES OF 333 HEREIN**
+
+This false being, conscious it is not a true being, feels fear. fear = pain, malice, envy, and hatred from supposed creator, because the supposed blessing of creation has been withheld from the "Bundle".
+
+[I.e. ego. And compare to Tibetan teachings that there is no Atman, only a "bundle" of sense-impressions which thinks itself a unified being. Hence this monstrosity—this is the root of the self, challenged as unreal and fighting back. Also note the traditional attribution that there are "333 million gods" in Hinduism (Atman).]
+
+Crowley is robed in Thunderbolt, unmoving. But 333 speaks with his voice/wears his face, presenting hallucinatory forms to Neuberg.
+
+Courtesan (Venus): God of Laughter. (Peter Carroll on laughter.) Bows before divine names but begs for mercy to break the circle. "you have mastered me, lemme come zuk ya dick" = appeal to pride
+
+he hates the "servants of the Most High" (IAIDA: INRI:IAO; YHVH/Tetragrammaton—see Wake World; Aethyr 29)
+
+He taketh the form of beautiful woman, or a wise and holy man, or of a serpent that writheth upon the earth ready to sting.
+[Angelina, Vinay/Gurunath, bedbugs...?]
+
+[JAE: Aspects of Crowley as OV experienced him, and a mystery of incarnation]
+
+lack of/inversion of elements
+
+asks for water = appeal to pity; faithfulness
+
+neuberg applies god names, pentagram
+
+He voids god names from his fundament; laughs at pentagram because he is master of triangle (333)
+
+ChVRVNZVN = 333 = 3 x 111; 111 = ALP, Aleph, 1. Also greek for impotence/lack of control; dispersion. Crowley says neither he, Dee, nor Kelley had any idea of these correspondences (p. 166)
+
+Invokes Angels and Crowley's HGA. C = I know that, it is only a cover for your filthy sorceries.
+Neuberg says he knows more than C. C says I am Knowledge.
+
+**Is not the head of the great Serpent arisen into Knowledge?**
+
+(= Da'ath. See all prior Dragon symbols; Babalon; Qliphoth.)
+
+[JAE: Da'ath is intellect run amok, but there is an inner aspect which is the ecstasy of Babalon and unity w Supernals. But this has nothing to do w 333. Da'ath is NOT the Abyss, even though it abides WITHIN the Abyss.]
+
+There is no cry in ZAX like the others... 333 is dispersion and cannot fix his mind upon any one thing for long (ADD generation). 
+
+You can't argue with him because it encourages him. You can't threaten him w anger pain and hell, because he is all these things.
+
+He refers to scribe as "fool," giving himself away... 
+
+Images wo control or reason. (Pool of Yesod in psyche)
+
+(Richard: "This stuff is meaningless", a lie or a koan?)
+
+I am I hath in truth no self (me to Richard in Van: "I'm having an 'I and I' moment")
+
+The malice of 333 is the QUALITY of malice. those who have fallen under his power are the blind who follow the blind, the blind one who has declared himself enlightened. no center, nothing but dispersion
+
+led away by talk
+
+written 32 books of Wisdom (tree/paths, chokmah) and are more stupid than owl
+
+own talk wearies thee; his talk tricks thee.
+
+"one of the tape-worms that is in me"=Choronzonic incarnations
+
+Perdurabo will NEVER LEARN to keep silence... delivering himself unto power of 333. 
+
+quotes tom o'bedlam to distract neuberg. rebuked by tetragrammaton (IAIDA) [=power of AIR, he's asserting that he's way down on the tree, unworthy game]. angrily strikes him w magick staff; he leaves circle. 
+
+All things are dispersion. This is the quality of things.
+
+“Handa'dāni bhikkhave āmantayāmi vo, vayadhammā saṅkhārā appamādena sampādethā ti. Disciples, this I declare to you: All conditioned things are subject to disintegration—strive on untiringly for your liberation." – the final words of the Buddha
+
+ZAX = World of Adjectives, for there is no substance therein.
+
+[my mind map as a young kid...]
+
+Returns as naked woman. Wants Crowley's shirt. Fear of sunset (death), tum and kephra. I am a-cold (Tom o'Bedlam)
+
+Threatens Neuberg; Neuberg says you can't do shit
+
+Threatens to torture him by power of his very Oath to White Brothers. (Thou liest)
+
+prevailed against kingdom of father, and befouled his beard;
+prevailed against kingdom of son, and torn off his Phallus; [osiris]
+against kingdom of Holy Ghost shall I strive and not prevail.
+
+3 slain doves are 3fold blasphemy against them, but blood makes sand fertile, and I writhe in blackness and orror of hate and prevail not (this actually happened, the sand grew plants when they checked later)
+
+tried to make him doubt magick and his own tools—and if he had doubted for but an nstant, he would have gnawed through his spine at the neck [Da'ath] (look back over your life. Vinay, Richard, etc etc etc)
+
+no alpha or omega, all hotch-potch
+
+Horror will be given through another Seer, who will be slain as a result of his revealing. The present seer, who is NOT Perdurabo, sees not the horror, because he is shut up and has no name (is NEMO).
+
+Crowley emerges from Samadahi and writes BABALON with holy ring = victory (Netzach; 7=Babalon) over 333
+
+Circle and triangle burned in great fire to purify the place.
+
+### NOTE BY SCRIBE (OV)
+
+[This gives **exact** instructions for overcoming Choronzon.
+
+(Crowley says he was OVERSHADOWED and spoke not as himself, remembering nothing [I experienced this summoning Baphomet/333 in a "neural net" in a retarded IOT ritual in Seattle]. He had sense of being protected and was not afraid [also sounds familiar]. 
+
+Neuberg's curses obeyed before he even speaks them.
+
+Neuberg whistles in a magical manner, which disturbs the demon. (He had not done this before.)
+
+333 is terrified by silence and concentration and can be brought to obey by WILLING IN SILENCE.
+
+He loves to argue, and can easily be beaten in argument, but he wins by keeping you distracted.
+
+Neuberg had truck with 333 later, obtaining information from him by long refusing to answer demon's speeches (!) (Use of 333 as information procurer, a la Carroll's Mass of Choronzon?)
+
+**"Choronzon is dispersion; and such is his fear of concentration that he will obey rather than be subjected to it, or even behold it in another."**
+
+There is a supposedly non-extant record of Neuberg that details later dealing with Choronzon (part of Neuberg's ongoing solo A.'.A.'. work presumably).
+
+<Center><h1><p style="font-family: Enochian Writing">ZIP</p></h1></center>
+
+<center>The 9th Aethyr, ZIP.
+Yesod in Yetzirah.
+“Malkuth. (The Pure Virgin.) The reward of the Magister Templi."
+Leo/Sagittarius/Cancer: Gray
+Lust/Art/Chariot</center>
+
+Comment: “The Magister Templi hath passed the Abyss, and is led to the Palace of the Virgin redeemed from Malkuth unto Binah."
+
+ZIP = 78, influence from IAIDA [INRI:IAO{IAIDA}->TARO]
+
+[JAE: 97, Book of the World]
+
+[Astro: Angel standing equilibriated between sun and moon]
+[In new scheme, revealed here, 9th Aethyr = Entrance to Binah]
+
+The Curse of the Call of the 30 Aethyrs has become a song of ecstasy and triumph, every phrase a secret blessing.
+
+razor edge of light above abyss, above the terrible armies of IAIDA, like Aethy 11.
+
+7 vs, 7 refrains
+
+4square name of beast
+
+4 watchtowers of truncated pyramids - 12 x 13, 156, each pyramid concealing a Sphinx (four powers, four sides-light life love liberty of Gunther?). Energies of 4 elements. BABALON is Sakti because she manifests powers of All-Father (Y/H) watchtowers are City of Pyramids but in a less exalted sense
+
+light of allfather kindles pile of dust. breath touches it. ibis revealed unto crab [8=3 becomes 9=2, OXO]; sixfold star becomes radiant triangle (Hexagram of Ruach -> Supernals) ∑1-2 = 3 (?)
+
+infinite ring (seen in 06)
+
+opening of 50 gates of binah to the City of God (Augustine) [symbol of supernals; allusion to Betulah?]. keystone of palace of king's daughter (Wake World), philosopher's stone [also seen in 06]
+
+Palace from Wake World - the body of a woman. Daughter of BABALON: Proud, fair, 12 years old. , naked, her body covered with fine gold hairs that are the spears of Angels. hair is the light of god himself. nothing seen in aethyrs is as glorious as 1 fingernail. even to behold this aethyr from afar is like seeing all the other aethyrs (all the spears of angels?)/ borne unto the father of all (Y - H - V -H). set upon throne of understanding, 
+HEr name is not to be spoken, but they have called her: Koré, Malkah, Betulah, Persephone [Persephone is similar to Inanna]
+
+= Lower Shekinah. viewing of the world as it truly is, no reactive mind/personality. 8=3 in this sense is the OUTERMOST grade. [resolving Saturn in Binah to Saturn the Materializer in Tav]. VISION OF WONDER, following Trance of Sorrow. 
+"placing the duaghter on the thorne of the mother"
+
+Babalon's Daughter is on sea of glass.
+
+Rev 4:6
+6 And before the throne there was a sea of glass like unto crystal: and in the midst of the throne, and round about the throne, were four beasts full of eyes before and behind.
+
+Revelation 15:2King James Version (KJV)
+
+2 And I saw as it were a sea of glass mingled with fire: and them that had gotten the victory over the beast, and over his image, and over his mark, and over the number of his name, stand on the sea of glass, having the harps of God.
+
+enflamed sense of touch in vision of Malkah-Koré
+
+["The Virgin of Eternity." these are all Virgo expressions, as Babalon is Leo.]
+
+The biblical betulah (בתולה) usually rendered "virgin," is in fact an ambiguous term which in nonlegal contexts may denote an age of life rather than a physical state. Cognate Akkadian batultu (masculine, batūlu) and Ugaritic btlt refer to "an adolescent, nubile, girl." That the woman who is so called need not necessarily be a virgo intacta is shown by the graphic account in a Ugaritic myth of the sexual relations of Baal with the goddess Anath, 
+
+there is nothing in the magick books or poets about this, too high, far beyond will and imagination
+
+hair bedecked w seven stars, 7 breaths of god, combed with 7 secret names of god known to none [Sigilllum?]
+
+many things of great and delicate beauty cast off from her into world of Qliphoth, earth, for **each world is the qliphoth of the world above it**
+
+
+John 20:29King James Version (KJV)
+
+29 Jesus saith unto him, Thomas, because thou hast seen me, thou hast believed: blessed are they that have not seen, and yet have believed.
+
+But here: Blessed art thou, who hast seen, and yet hast not believed.7fold rapture of senses
+
+Black swastika (see Aethyr 30)
+
+9 towers = Aethyr 11 = mass-mind psychological foundations of the world
+
+From Book of Babalon (Parsons):
+
+37. For I am BABALON, and she my daughter, unique, and there shall be no other women like her. 
+38. In My Name shall she have all power, and all men and excel- lent things, and kings and captains and the secret ones at her command. 
+39. The first servants are chosen in secret, by my force in her--a captain, a lawyer, an agitator, a rebel--I shall provide. 
+40. Call me, my daughter, and I shall come to thee. Thou shalt be full of my force and fire, my passion and power shall surround and inspire thee; my voice in thee shall judge nations.
+41. None shall resist thee, whom I lovest. Though they call thee harlot and whore, shameless, false, evil, these words shall be blood in their mouths, and dust thereafter. 
+42. But my children will know thee and love thee, and this will make them free. 
+43. All is in thy hands, all power, all hope, all future. 
+44. One came as a man, and was weak and failed. 
+45. One came as a woman, and was foolish, and failed. 
+46. But thou art beyond man and woman, my star is in thee, and thou shalt avail. 
+
+chamber w maps of mystical cities (Aethyrs as locations?) crowley claims these tables are found in secret chambers of brotherhood, and are used to arrange destinies of planet. 
+
+Map of Aethyrs arranged as a flaming sword, so they go into the 10 sephiroth-not to be given to unitiaties (see Breeze's diagram in V&V) [These were given in Practicus Adeptus Minor of GD, though Crowley may not have got it]
+
+New model:
+
+Malkuth = 30,29,28
+Yesod = 27,26,25
+Hod = 24,23,22
+Netzach = 21,20,19
+Tiphareth = 18,17,16
+Geburah = 15,14,13
+Chesed = 12,11,10
+Binah = 9,8,7
+Chokmah = 6,5,4
+Kether = 3,2,1
+
+[This method is of Chokmah, and pertains to 9=2 grade.]
+
+Invoke IAIDA before unveil shirnes within
+
+Rule is: Before an aethyr, affirm the unity (in Enochian or Arabic?) 1,001 times, and bow 1,001 times. Recite Call of Aethyr x3 (1+2 for Chokmah). [This Crowley divided into 13 sections [AChD] - 77 each. Think and desire only Adonai. Be chaste, or at least subtle and delicate.
+
+All day and all night, awake or asleep, shall thy heart be turned as a lotus-flower unto the light. [Open Anahata]. And thy body shall be the temple of the Rosy Cross. Thus shall thy mind be open to the higher, and then shalt thou be able to conquer the exhaustion, and it may be find the words-for who shall look upon his face and live?
+
+Tremblest from within, holy spirit descended into heart, shaketh thee as an aspen. [Pranayama/kundalini phenomena.] [Aspen = Aleph, air. Pranayama.]
+
+[Jae: 1,001 is number of minutes a typical person is awake in a day - just over 16 1/2 hours—i.e. EVERY WAKING MOMENT SHALL BE SPENT AFFIRMING UNITY AND BOWING BEFORE IT]
+With mind open to higher, and heart and center of light, one's body become a true Temple of the Rosy Cross.
+
+Adept is Crowned with Holy Spirit, RUCh ALHIM = 300 = Shin. Master is filled with it.
+
+
+<Center><h1><p style="font-family: Enochian Writing">ZID</p></h1></center>
+
+<center>The 8th Aethyr, ZID.
+Hod in Atziluth.
+“The Holy Guardian Angel. His instruction." 
+Leo/Sagittarius/Spirit: Indigo
+Lust/Art/Aeon</center>
+
+Comment: “The fuller manifestation of the Holy Guardian Angel."
+
+Tiny spark of light, tentative, fanned by aethyr, darts like snake or sword, steadies and becomes Pyramid of light that fills the whole Aethyr [This may be the Dominus Liminus lamp mentioned in Liber A.]
+
+Pyramid = Angel = no form because of substance of light. He makes form visible only to destroy it.
+
+Light come to darkness
+Darkness become light
+Light married with light
+Child is the other darkness, where they that abide have lost name and form.
+
+[YHVH formula terminating in Binah. Ain (Limitless light, Y) ->Kether (H), Chokmah (V), Binah (H final).] Aiwass wrote the Book of the Law to bring us to the NOX of Pan-secrets are like star, snake, sword.
+
+Unto NEMO does he deliver the secrets of the Operation so that the least of the children (H, Malkuth) can come to Binah. 
+
+New Operation instructions—of 91 days:
+1. Prepare chamber. Walls and roof white. Floor, carpet of black&white squares, border blue and gold.
+2. If town: No window. If country: Window in roof. Or in temple prepared for passing of Tuat (Cadaveris).
+3. From roof, red glass lamp {sol?}, burning olive oil. Cleanse and make ready after prayer of sunset.
+4. Beneath lamp, altar {water?}, 4square, height 3x 1/2 of the breadth, or 3x 2x the breadth. Top is white wood, well polished. In center is triangle of oak wood {Geburah} painted scarlet.
+5. Upon oak triangle: Hemispherical censer, on three legs, of silver {luna?}, within a hemisphere of copper {venus?}, upon the top a grating of gilded silver {spirit?}. Burn Abramelin incenses {air?}
+6. Abramelin oil in crystal flask w/in altar {spirit?}
+7. Wear robe of Probationer no matter rank. (Hex shows Nuit/Hadit/RHK—and Adonai is golden Tau in midst of their marriage.)
+8. Alternate complex silk robe given.
+9. Wand of almond or hazel cut by own hands at Equinox, Solstice, day of Corpus Christi, or a Thelemic feast day.
+10. Engrave with own hand upon a gold plate the Holy 12fold Table (or some particular device). 4square w/in circle, winged (Hadit), attached to forehead by blue silk ribbon.
+11. Wear fillet of rose, ivy, or rue; burn it in censer every day after prayer of sunset.
+12. Pray 3x day—sunset, midnight, sunrise. If able, +4x prayers between sunrise and sunset. Each prayer at least 1 hr. constantly extend and more greatly enflame thyself.
+13. Carry out for 11 weeks. 
+14. During this time you make an invocation, fully inspired by Crown, and write in letters of gold on top of Altar.
+15. Copy invocation on sheet of pure white vellum, with Indian ink, and illuminate it according to fancy and imagination (Yesod/Yetzirah), informed by beauty (Tiphareth).
+16. First day of 12th week: Enter chamber at sunrise. Burn invocation in the lamp. {Repeating from aethyr-calling instructions.} Make prayer.
+17. Chamber will be filled with light insufferable for splendor (overcoming Hod), perfume intolerable for sweetness (overcoming Netzach?). 
+18. HGA appears. Remain in K&C all day. 
+19. Remain in temple for 3 days, sunrise to sunset, and obey counsel and suffer that which is appointed.
+20. For 10 days, withdraw fully into meditation, and harmonize the inner world with the Angel.
+21. Return to world and perfom that which has been appointed.
+22. If you continue in K&C, the Angel will at last bring you to City of Pyramids.
+
+22 paths but ONE serpent; 10 sephirah, but ONE sword.
+End of life and death. Breath goes still (peak kundalini).Everything you know buried in House of Father (Bet-Chokmah). 
+You become Danae - slain beneath glory of vision
+https://en.wikipedia.org/wiki/Dana%C3%AB
+Suffering will make you mightier than all Kings of earth and Angels of Heavens, and all gods beyond heavens.. then you meet angel in equal conflict, see him for what he is, and he will kill you w red rain of lightnings.
+Killed by weight of pyramid...
+So shall it be until awake are asleep and asleep are awake (kalpa?)
+you are transparent to vision and voice, so hey only manifest to those until whom thou dost deliver them, according to dictates of Liber AL and the word Thelema.
+
+Aiwass minister of RHK, RHK the viceroy of an UNKNOWN KING
+Aiwass = 78, 8+70 = Cheth and A'ayin. Cheth = 418, formula of NEw aeon; A'ayin = Set/Hadit, eye, manifest in 418. (!)
+Influence of concealed one and wheel of Taro.All is equivalent of 671 and daleth.
+
+Error to see HGA in gimel. HGA is totally above abyss, in the supernals. Paths that cross abyss to Tiphareth (Gimel, Zayin, Heh) are the servants of Babalon and the Beast and the unspoken "others." As servants they have no name (NEMO), but we are of blood royal (cup of babalon?) and serve not, and hence we are less than they (lower numbers/more simplified). with all that they remai themselves, who have eaten pomegranate of hell
