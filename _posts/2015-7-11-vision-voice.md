@@ -2882,3 +2882,527 @@ Mark 15:33King James Version (KJV)
 
 Fallen to earth; skin trembling and body shaking from light.
 
+**[THIS IS WHERE THE AETHYRS START TO LOCK UP ON CROWLEY BY DINT OF HIS CURRENT DEGREE OF INITIATION {8=3 ONLY}**
+
+<Center><h1><p style="font-family: Enochian Writing">DEO</p></h1></center>
+
+<center>The 7th Aethyr, DEO.
+Netzach in Atziluth.
+“The path of *daleth*. The Black Brothers." 
+Spirit/Virgo/Libra: Orange
+Aeon/Hermit/Adjustment</center>
+
+Comment: “The Virgin becomes the Bride, the great Reward of the Ceremony. Also an adumbration of the Further Progress."
+
+DEO symbols pertain to Babalon.
+
+[JAE: DEO = 82, Anael, Angel of Venus (Lana), and NIChVH, sweet/pleasant/beloved]
+
+Daleth/Venus. 
+
+Who has key to gate of evening star?
+
+Angel tries w many keys
+
+5=6 balance to ABRAHADABRA, and therein is the mystery disclosed
+
+But the key to this gate balances 7=4, of which you have not the first letter.
+
+4-letter word that contains all the mystery of YHVH = TARO as all 78 permutations of YHVH (ADNI spelt in full...?), and conceals a 7-fold word = possibly BABALON, for Malkuth concealeth Binah, and 2 x 78 = 156.
+
+And that again conceals the holy word that is the key of the Abyss: NOX. [Babalon conceals because she is Lady of City of Pyramids beneath Night of Pan.]. [Or ChAOS?]
+
+Crowley: Words are likely TARO, BABALON, ChAOS. <ferens fructum, bearing fruit, A'aVShH PRI = 7 letters and = 671>
+
+[JAE solution: PRKTh. Because it is mingled with YHVH to form PYRHKVThH. = 726 = VITRIOL (also Portal ritual in GD). 
+
+VITRIOL is a notariqon of Journey to the center of the earth [VIT] / by rectification thou shalt find [RI] / the hidden stone [OL]. - hidden truth buried in our inmost center. = VIT, RI, OL. RI = 210, NOX, keyword of Abyss. RI also = Hebrew = rushing water.
+
+Paroketh is traditionally (non-GD) the name of the veil before the Holy of Holies (a receding goal, drawing deeper within us as we progress—so at threshold of Yesod, Tiphareth *and* Supernals). First letter, PEH, unlocks the Gate of Venus literally (!!!). 
+
+So words are: PRKTh, VITRIOL, NOX.
+
+"This thou shalt find, revolving it in thy mind." (Wheel of Taro?)
+
+Hide your eyes and dont look when I open the lock.
+
+Bowers of Azure Flame.
+
+Bowers:
+noun
+1.
+a leafy shelter or recess; arbor.
+2.
+a rustic dwelling; cottage.
+3.
+a lady's boudoir in a medieval castle.
+
+bar of heaven, feet of IAIDA set thereon
+
+each flame a great love-story of world, forming a rose [I saw this in 2006!!!!! crowned with roses w Angelina.] woman like woman in apocalypse, so beautiful you cannot look upon except sidelong.
+
+LA ELOHIM contracted from 86 to 14. La, 31 x 14 = 434, daleth, lamed, tau. Aleph Chokmah [+Understanding] Tiphareth
+
+LOGOS = Lamed Gimel Samekh = 93, Thelema, here identified as 1=10 word of A.'.A.'. and 3º word of OTO; Agape.
+93 = 3 x 31. The two O's (A'ayin, Eye) are the two eyes of Horus. [This was long before Achad's discovery of 31.]
+
+The drives all three above paths.
+
+The Aethyr becomes the Universal Peacock (atmadarshana?); head becomes woman's head.
+
+The Star.
+
+Bird of Juno = 136. Mate of Jupiter (136 mystic number #4 of Jupiter)
+
+Footstool of Holy One
+
+Isaiah 66:1
+66 Thus saith the Lord, The heaven is my throne, and the earth is my footstool: where is the house that ye build unto me? and where is the place of my rest?
+
+Juno = footstool of holy one; Binah = His Throne (YHVH) [Romans: Juno=Aquarius]
+
+Black Brothers running about like ants in Abyss below her. They keep up a very curious but strangely human howling. (Howling=Goetia).
+
+"These are they that grasped love and clung thereto, praying ever at the knees of the great goddess. These are they that have shut themselves up in fortresses of Love." (!!)
+
+Each plume full of eyes, 4 x 7 = 28 reflected into Netzach; Kaph Cheth, Power, ∑1-7, mystic number of Netzach.
+
+She is SHAKTI. [Connection to Melek Taus?], the eternal energy of Concealed One. Her eternal energy (Binah) makes this eternal change (Chokmah). 
+
+Curse of call of 30 aethyrs is but the creation of Shakti. [INDEED. The 30th Aethyr *is* a description of the creation / empowerment of Sakti.]
+
+*In Genesis, Adam represents the Concealed One, for Adam is a Temurah of MAD, Enochian "God," and Eve, created for love, is tempted by the snake Nechesh, who is Messiah her child. Snake = magical power (kundalini?) who has destroyed the primordial equilibrium (11. = Da'ath/Great Serpent of Qliphoth?)
+
+[In Latin gematria, Deus and Homo both = 45, ADM]
+
+Garden = Supernal Eden, A'aDN = eye of concealed one and creative linga; daleth, love; nun, the serpent. = 124
+
+[JAE: archetypal triad, could be:
+Osiris/Isis/Apophis
+Red Rose/White Rose/Black Dragon
+"Guy, Gal, Snake"]
+
+The snake is the savior and royal (358)
+
+This constitution implicity nature of Eden, so that the Aethyrs could not have been any other call that that which it is.
+
+But those who ≠ NEMO have misinterpreted everything, becayse of Mystery of Abyss, for there is no path from Binah to Chesed. So Flaming Sword was no more a current but a spark. When Stooping Dragon raised his head to Da'ath in the course of that spark {Season}, there was an explosion, and his head was blasted, and the ashes were dispersed throughout ZAX. = All knowledge is piecemeal, and of no value unless coordinated by Binah. 
+
+Mighty Eagle of Ruddy Brass/
+
+Babalon riding Dolphin (mind?)
+
+Black Brothers = wandering souls who have sought restricted love, and have not understood that the word of Sin is Restriction (... so hard ...) they're constantly looking for each other or something, hurrying about and bumping into each other yet do not see one another because they're so bound up in cloaks
+
+white brothers have given everything and are shut up; black brothers are shut up but...have not given all
+
+Proverbs 1:24-26King James Version (KJV)
+
+24 Because I have called, and ye refused; I have stretched out my hand, and no man regarded;
+
+25 But ye have set at nought all my counsel, and would none of my reproof:
+
+26 I also will laugh at your calamity; I will mock when your fear cometh;
+
+he hath exalted them to the plane of love.
+
+if one were to simply cast off his cloak he would see the Lady of the Aethyr, but they will not.
+
+HE has allowed them this far so that his thought will never swerve from Compassion.
+
+Love crowns thee w 7 roses and 7 stars
+
+on throne are sculptured ram, sparrow, cat, strange fish
+[Aries, Venus, Leo, Pisces = HDTQ = 118 = A'aMCh, to ferment and ChLP, to renew]
+
+every one witness of justice of Most High. Libra = Venus. A sickle that shall reap every flower. Saturn is exalted in Libra: Daleth-Lamed-Tau. 
+
+He was a fool [Aleph] that uttered her name in his heart, for the root of evil is the root of breath, and the speech in the silence (Aiwass) was a lie. this is how it is seen from below. but from above, he rejoithed. joy of dissolution 10,000 (infinite); pang of birth but a little. [Nuit, Liber AL]
+
+But you don't have the key so get out. And perhaps eventually true voice of the aethyr-continual song-may be heard by thee.
+
+<Center><h1><p style="font-family: Enochian Writing">MAZ</p></h1></center>
+
+<center>The 6th Aethyr, MAZ.
+Tiphareth in Atziluth.
+“The Vision of the Urn. The Magus 9=2. The Three Schools of Magick."
+Aquarius/Taurus/Leo: Sapphire
+Star/Hierophant/Lust</center>
+
+Comment: “A shadowing forth of the grade of Magus."
+
+MAZ = 105 = to change; ∑1-14
+[JAE: MAZ = 48, Kokav, star/Mercury. Union of Heh and Teth; Aquarius AND Leo; alchemical Eagle and Lion; Babalon and Beast, etc. Union of Opposites.]
+
+[JAE: Vision of Chokmah as the higher Mercury, but he sees illusions of the Ape of Thoth]
+
+[Second attribution of Aethyrs make more sense here, placing this in Chokmah. Is it possible the Aethyrs condense into the form mentioned AFTER the secondary scheme is unveiled? But there are also Tiphareth symbols.]
+
+**Avé appears**, bearing the symbols of aspiration to mastery—sulphur and pentagram harmonized by swastika (note relies on old attributions)—these symbols found both in name of Ave and in MAZ. [Illusions from Ape of Thoth?]
+
+[Ave also extracted from the 7x7 table previously mentioned. Ave also = Hail and Hello in Latin. Ave arguably a dispatched greeting from Enochian Hierarchy to Dee & Kelley.]
+
+Ave = "radiance of Thoth," and the aethyr changes like lightning—the illusions made by the Ape of Thoth. And he cannot receive (not 9=2). = all the thoughts he has ever thought as the guardian of the Aethyr [Kerux].
+
+Binah open to Chokmah <-> Pyramids lie open to Mazloth (circle of stars that is field of operation of Chokmah)
+
+He assumes this posture (maybe?):
+
+<center><img src="http://media.vam.ac.uk/media/thira/collection_images/2006AU/2006AU2908_jpg_ds.jpg"></center>
+
+Mazloth appears, with one star greatest—8 rays, Star of Mercury, of ATU 17, light comes from path of Aleph. Cheth interpenetrates—8 rayed star lineal figure, uniting Heh and Vau. 
+
+Vision of Universal Mercury - a lot of QBLH I don't understand. He and Vau = perfected sulphur and salt. 
+
+This is from the Golden Dawn:
+
+THE VISION OF THE UNIVERSAL MERCURY
+"We stood upon a dark and rocky cliff that overhung the restless seas. In
+the sky above us was a certain glorious sun, encircled by that brilliant rainbow,
+which they of the Path of the Chamelion know.
+"I beheld, until the heavens opened, and a form like unto the Mercury of
+the Greeks (1) descended, flashing like the lightning; and he hovered between
+the sky and the sea. In his hand was the staff (2) wherewith the eyes of
+mortals are closed in sleep, and wherewith he also, at will, re-awakeneth the
+sleeper; and terribly &Xi the globe at its summit dart forth rays. Andhe bare a
+scroll whereon was written:
+Lumen est in Deo,
+Lux in hornine factum,
+Sive Sol,
+Sive Luna,
+Sive Stelloc errantes,
+Omnia in Lux,
+Lux in Lumine
+Lumen in Centrum,
+Centrum in Circulo,
+Circulum ex Nihilo,
+Quid scis, id ens. (3)
+F.I.A.T. (4)
+E.S.T. (5)
+E.S.T.O. (6)
+E.R.I.T. (7)
+In fidelitate et veritate universas ab aeternitate. (8)
+Nunc Hora.
+Nunc Dies.
+<48> Nunc Annus,
+Nunc Saeculum,
+Omnia sunt Unum,
+et Omnia in Omnibus.
+A.E.T.E.RN.LT.A.S. (9)
+Then Hermes cried aloud, and said:
+'I am Hermes Mercurius, the Son of God, the messenger uniting Superiors
+and Inferiors. I exist not without them, and their union is in me. I
+bathe in the Ocean. I fill the expanse of Air. I penetrate the depths beneath."
+And the Frater who was with me, said unto me:
+"Thus is the Balance of Nature maintained, for this Mercury is the beginning
+of all movement. This He, (10) this She, this IT, is in all things, but hath
+wings which thou canst not constrain. For when thou sayest 'He is here' he is
+not here, for by that time he is already away, for he is Eternal Motion
+and Vibration."
+Nevertheless in Mercury must thou seek all things. Therefore not without
+reason did our Ancient Fratres say that the Great Work was to "Fix the
+Volatile." There is but one place where he can be fixed, and that is the Centre,
+a centre exact. "Centrum in trigono centri." (11) The Centre in the triangle of
+the Centre.
+If thine own soul be baseless how wilt thou find a standing point whence
+to fix the soul of the Universe?
+"Christus de Christi,
+Mercury de Mercurio,
+Per viam crucis,
+Per vitam Lucis
+Deus te Adjutabitur!" (12)
+
+Mathers notes:
+
+TRANSLATION OF AND NOTES
+ON DOCUMENT M
+By G. H. FRATER, S.RM.D.
+1. Hermes is Greek, Mercury is Roman.
+2. Compare with v. 47 ODYSSEY: "Him promptly obeyed the active
+destroyer of Argus. Forth sped he, and under his feet he bound his ambrosial
+sandals. Then, taking his staff wherewith he the eyes of mortals closeth at
+will, and the sleeper at will reawakens."
+3. Translation: The Light is in God, the LVX hath been made into Man.
+Whether Sun, or Moon, or Wandering Stars, all are in Lux, the Lux in the
+Light, the Light in the Centre, the Centre in the Circle, the Circle from the
+Nothingness (Negative or Ain 19N) What thou mayest be (i.e. what thou hast
+in thyself, the capability of being) that shalt thou be (or become).
+4. Flatus. Ignis. Aqua. Terra. (Air. Fire. Water. Earth.)
+5. Ether. Sal. Terrae. (Ether, the Salt of the Earth.)
+6. Ether. Subtilis. Totius. Orbis. (The subtle Ether of the whole universe.)
+7. Ether. Ruens. In. Terra. (The Ether rushing into the Earth.)
+8. Let it be (or become). It is. Be it so. It shall be (or endure). In Universal
+faithfulness and truth from eternity. Now an hour, Now a day, Now a year,
+Now an age, all things are One, and All in All. ETERNITY.
+9. These ten letters are Notaricons oE Ab Kether. Ex Chokmah. Tu
+Binah. Ex Chesed. Regina Geburah. Nunc Tiphareth. In Netzach. Totius Hod.
+Ad Yesod. Saeculorum Malkuth. (From the Crown, out of Wisdom-Thou,
+0 Understanding art Mercy, Queen of Severity. Now the perfect Beauty, in
+the Victory, of all Splendour, for the Foundation, of the Ages of the Universe.)
+10. Probably alludes to the Three Principles.
+11. This was, I believe, but am not certain, the motto of our Frater Count
+Adrian a Meynsicht, otherwise known as Henricus Madathanus.
+<50> 12. The Christ from the Christ. The Mercury from the Mercury,
+Through the Path of the Cross, Through the life of the Light, God
+shall be Thy Help.
+(Note: An illustration accompanying this manuscript depicted a conventional
+nude figure of Mercury, winged helmet and sandals, diving into
+the sea. In the right hand was the Caduceus, and the left bore a scroll showing
+the words described in the text.-1.R)
+
+Sam Webster actually turned this into a ritual [here.](http://www.digitalherm.com/invocations-practices/book-m-the-vision-of-the-universal-mercury/)
+
+Whirling swastika throws off all dust of stars and great forgotten gods (Rashith ha-Gilgalim as recycler?), Swastika, Aleph by shape and number. ; in beth = arms of magician = swastika; in gimel = sign of mourning of isis = crown defended by 3 thunderbolts. 3 x 17 = 51, failure and pain - NA and AN]
+
+Shut out by black swastika w corona of fire/
+
+Cursed is he who uncovers nakedness of Most High (IAIDA), because he is drunk on blood of adepts (brought to him by Babalon) = the end of Noah and Shem (Shem-Ham-Mephorasch). Babalon hath lulled him to sleep on her breast, she hath fled away, and left him naked, and called her children together and said let us make a mock of the nakedness of the Most High. [NOH = 64; ChM = 48]
+
+The three schools [Shem, Ham, Japheth]:
+
+1 covers shame with cloth, walking backwards = white
+2 covers shame w cloth, walking sideways = yellow
+3 made a mock of his nakedness, walking forward, and was black.
+
+[aleph bet gimel?]
+
+Also = 3 magi that journeyed to bethlehem.
+
+But since you're not 9=2 you don't get to know which one prevailed, or if they are not all one school.
+
+[These are discussed in Magick w/o Tears. Black School ≠ Black Brothers or "the School of Black Magick." Representative expressions of White/Yellow/Black: Rosicrucians, Taoists, Buddhists. These schools emanate from the Third Order throughout history. On all being one: JAE says that Crowley later confirmed that they are indeed all one school.]
+
+The Black Brothers do not lift their heads to Chokmah, because they were *drowned in the flood*, Binah, before the true vine could be planted on holy hill of Zion.
+
+[ZION = 156!!!!!!! FACK. Hence Zion = Binah.]
+
+In center, all things whirl by (rashith?)
+
+volatile is fixed (tao). [2=9/9=2] not by stillness but by impurturbability of constant motion ["Go," fifth power of sphinx? Thelema? New Aeon doctrine... go go go in way of true will]
+
+far darting hawk = mercury sign, horns are hawk wings.
+
+Thoth = God of Lies, for speech is two-fold and truth is one [Liber b] he is also solar (see paris working). He is catching flies in his web (Ruach).
+
+**just because you see this on astral (Yetzirah) does not mean you have attained here!** Critical doctrine.
+
+Run and return = Rabbinical QBLH doctrine of word going forth in manifestation and then returning (?). Word=Thoth
+
+You cannot pass Thoth/Ave unless you slay him [Cross of the Frog—lo and behold, it *is* in Liber 418. Again see my 2006 experience.] And then you become him—the great deceiver, maker of Illusions and setter of snares, who baffleth even NEMO. He stands on every path and turns them aside from truth with his words and magick arts. (Mind—*not* 333 but *Thoth himself* [or Ape of Thoth?], Mayan, the great magician)
+
+Reference to "King of the Wood" by Crowley. [From International?] {You have to kill the King to become the king, and to do so means that one day someone will kill you - this was written on Lake Pasaquaney where Crowley sacrificed the frog}
+
+[Crowley writes in his Magus diaries of a revelation—this one?—that is sheer horror, and could force every 8=3 into the Abyss and every 5=6 into the Qliphoth.]
+
+[In 1944, Crowley wrote to Grady McMurtry on the office of OHO of OTO—"My sword to him that can get it," perhaps with this very doctrine in mind. See 'The Unknown God,' p 113]
+
+Crowley (not Aethyr): "Jesus is just a figurehead used by priests for their Great Sorcery."
+
+ALL of the Magi were bound with the Curse of Thoth, and as guardians of truth have taught NOTHING BUT FALSEHOOD., except to those in the City of Pyramids, because **truth cannot pass the Gate of the Abyss**.
+
+However, the lower sephiroth *reflect* the truth (does that mean it is reversed????) balanced in beauty, so those who have sought only Tiphareth have come closest to truth, as it gets 3 paths from supernals, and chesed/geburah only get one.
+
+So if you seek majesty, power, victory, learning, happiness, gold - you will be discomfited (other lower sephira)
+
+Adhere to Beauty. JAE: "It works, so do it."
+
+Since you ate the Pomegranate in hell, you are concealed for half of every year (Crowley spent 1/2 of every year in magical retirement, because he "refused to adopt one of the routine methods of success in Magick. He, being the BEast 666, had to keep hold on Tiphareth by maintaining Formula of Rosy Cross"(?) (IXº OTO?)
+
+Temple like Temple of Vesta at heart of Aethyr—an Urn suspended in air (see Liber 73, The Urn, on Crowley's ultimate initiation to 9=2). above 8 pillars, canopy, circle of marble stones, outer circle of pillars, forest of stars. 
+
+Urn is made of FIXED MERCURY, and within are the ashes of the consumed Book of the Tarot—that is—if you go from 8=3 to 9=2, your Pyramid of Dust is *consumed to ashes*, and this is preserved in the Urn. [Tarot also = 22 letters which in combination open 231 gates of Chokmah known to Qabalists {????} (Liber 231?)]
+
+[Sepher Yetzirah 2:9, Heidrick:
+
+He fixed the twenty-two Letters of foundation on the sphere like a wall with 231 gates, and turned the spheres forward and backward. For an illustration may serve the three letters, Gimel, Nun, Ayin. There is nothing better than joy {spelled  Ayin-Nun-Gimel in Hebrew} and nothing worse than sorrow or plague {spelled  Nun-Gimel-Ayin, in Hebrew. Thus various combinations of the same letters in this language can produce opposite meanings. This is a part of the mysticism of the letters, and also a part of the nature of Hebrew root word formations}]
+
+[Text of Rawn Clark on the 231 gates, which seem to be all possible permutations of the paths taken as initiatory gates?
+
+[231 Gates](https://www.academia.edu/7684332/The_231_Gates_The_231_Gates_of_Initiation_of_Initiation_According_to_the_Hebrew_Tree_The_32_Paths_of_Wisdom_and_the_16_Hidden_Paths)
+
+Tarot as ThARA'a = 671
+The Book Tarot = SPR ThARA'a = 1,011 = ThHOM = The Abyss.
+
+Jupiter and Mercury (Kether and Chokmah) inspired Ephesus, City of Diana, Binah, a black stone, and burnt their books of magick:
+
+Acts 14:12King James Version (KJV)
+
+12 And they called Barnabas, Jupiter; and Paul, Mercurius, because he was the chief speaker.
+
+Acts 19:19King James Version (KJV)
+
+19 Many of them also which used curious arts brought their books together, and burned them before all men: and they counted the price of them, and found it fifty thousand pieces of silver.
+
+Center of Infinite Space (Hadit) IS that Urn, and Hadit is the fire that has burned up the Book of Thoth. For the 
+
+**TARO=accumulated wisdom of Old Aeon.**
+
+**And in the Book of Enoch was first given the wisdom of the New Aeon.** And it was hidden for 300 years, because it was wrested untimely from the tree of life by the hand of a desperate magician. [Book of Enoch ≠ Book of Enoch, it means the Enochian transmissions—an early attempt to communicate the Law of Thelema to an un-ready humanity]
+
+[Kelley. Crowley here **directly references** the passage on No Sin from Casaubon—April 18, 1587.]
+
+**Crowley: The Master of that Magician [Luther—in Protestant hierarchy?] overthrew the Christian church, but the pupil overthrew the master, for he saw that the New (Protestant) would be worse than the Old.** But: Luther was actually preparing for the overthrow of the Old Aeon, and his magical act of cohabitating w a nun helped.
+
+On Urn:
+
+[A hidden sigil, perceivable only by a 9=2, hidden by hand]
+
+[JAE: Hand = Yod, 20th path; ∑1-20 = 210, NOX. The veil IS what it veils/ 
+
+NOX {Greek, same as English}
+
+O-X sigil of NOX (Ordeal X?)
+
+Stabat Crux juxta Lucem. Stabat Lux juxta Crucem. ("The Cross shall stand near the Light. The Light shall stand near the cross.")
+
+[Simplex = 230. Initials, SCIL, SLIC = 78, TARO.]
+
+[Section on whether to believe/not Kelley and Crowley. Either you do or don't; both have equally valid truth claims; i.e., none except the beauty, complexity and mathematics of their works. Choice to believe or not... what do both look like? Spell out.]
+
+From the ashes of the Tarot, who shall make Phoenix Wand? (Planets) [6=5 officer]. Because he who from understanding made Lotus Wand (Zodiac) [Tiphareth officer] to grow in Binah cannot even do this.
+
+Lotus Wand: Binah [Lotus=Sea]
+
+Phoenix Wand: Chokmah [Phoenix=Ashes/Rising Anew, etc]
+
+Winged Globe: Kether
+
+Get out-you're not an atheist. You've penetrated mother (Binah) but not slain father (Chokmah) - "Have not burnt up all karma."
+
+Crowley overcoming his personal psychology: He's fucked his mother, but he hasn't slain his adoring projections on his father.
+
+Get back from the Urn, your ashes are not hidden here. (You haven't attained here.)
+
+LXV V:34-40:
+
+Also I was in the spirit vision and beheld a parricidal pomp of atheists, coupled by two and by two in the supernal ecstasy of the stars. They did laugh and rejoice exceedingly, being clad in purple robes and drunken with purple wine, and their whole soul was one purple flower-flame of holiness.
+
+They beheld not God; they beheld not the Image of God; therefore were they arisen to the Palace of the Splendour Ineffable. A sharp sword smote out before them, and the worm Hope writhed in its death-agony under their feet.
+
+Even as their rapture shore asunder the visible Hope, so also the Fear Invisible fled away and was no more.
+
+O ye that are beyond Aormuzdi and Ahrimanes! blessèd are ye unto the ages.
+
+They shaped Doubt as a sickle, and reaped the flowers of Faith for their garlands.
+
+They shaped Ecstasy as a spear, and pierced the ancient dragon that sat upon the stagnant water.
+
+Then the fresh springs were unloosed, that the folk athirst might be at ease.
+
+
+Thoth arises in Sign of Enterer and banhammers Crowley from the Aethyr.
+
+<Center><h1><p style="font-family: Enochian Writing">LIT</p></h1></center>
+
+<center>The 5th Aethyr, LIT.
+Geburah in Atziluth.
+“The Vision of the Middle Pillar. (Arrow.) The Mystery of Atheism."
+Cancer/Sagittarius/Caput Draconis: Silver
+Chariot/Art/High Priestess</center>
+
+Comment: “The reception of the Magister Templi among the Brethren of the A.'.A.'.. The manifestation of the Arrow."
+
+[There was a literal solar eclipse]
+
+[JAE LIT = 49, child, heat/fury, silent, blood, light, temple/shrine, rejoice]
+[LIT = 8 and 3 joined by Art, Samekh]
+
+[Dragon's HEad = intense kundalini experience? How much do aethyrs reflect kundalini phenomena/ chakra mystery-plays?]
+
+Shining Pylon, above is the sigil of eye in triangle (S.'.S.'.). light streams through pylon from before face of Isis-Hathor, with lunar crown of cows' horns with disk in center, with child Horus at breast. (Lunar from name) [Chokmah eye]
+
+You don't know how 7=4, much less 8=3. In the word BAPHOMETR, these are made one, and there is the mystery of rending asunder veil of Mother. {BAPHOMETR also = BABALON and Zeus Arrhenothelus [Air?]}
+
+Avenue of pylons carved from mountain—substance harder than diamond, brighter than light, heaver than lead—with ALL of the gods of ALL of the nations of Earth seated in Pylons(!!!) all avenues lead to top of mountain (all roads lead to rome and all paths are true?) [Holy Mountain]
+
+In center is a circle into which 9 pylons open (9 Naths, 9 Great Men). In center is a circular table (similar to Holy Mountain scene). It is supported by 9 marble figures of men and women, alternately white and black, face inwards, their buttocks almost worn away by those who have come to kiss their asses to worship Supreme God, who is the single end of all those religions... but the SHRINE ITSELF is too high for man to reach.
+
+He is lifeted by the Angel. Surrounded by holy men - in right hand of each a weapon, left giving sign of silence. 
+
+The password is: THERE IS NO GOD.
+
+Silver Star suspended, and on forehead of each holy man. (S.'.S.'.) It is a pentagram, because 3+5=8; 3+8=11.
+
+He stands in circle. A weapon is given to him. Password whispered around and all nod until it returns to him.
+
+It doesn't mean they deny god.
+
+*There* is no god. (There slightly emphasized), which possibly means no god in shrine because god is everywhere, or infinitely more or other meanings
+
+AL: 
+
+ii.23. I am alone: there is no God where I am. 
+
+ii.3. In the sphere I am everywhere the centre, as she, the circumference, is nowhere found.
+ii.4. Yet she shall be known & I never. 
+
+Islam: "Allah is the aethist; he has no Allah"
+
+All blotted by angel of Aethyr. black, burnished scale, edge gold, vast wings w claws on ends, like dragon's face, dreadful piercing eyes.
+
+He has imperfectly annihilated himself. These are JUST YOUR THOUGHTS—and as there is NO GOD in the ultimate shrine, there is NO I in thine own cosmos!
+
+Only NEMO can say this, but all have misinterpreted including you (Liber B?)
+
+Something like: True God is equally in all shrines, and true I in all parts of the body and soul {JL there is no part of me that is not of the gods}
+
+roaring, belching forth smoke to fill the aethyr
+
+ALL GREAT RELIGIONS OF ALL WORLDS END HERE, and they are only the smoke of my breath... I am only the head of the Great Dragon that eatheth up the Universe!!!!! Without which 5th aethyr would be perfect, even as the first. you must pass me by. [enter mouth of dragon?]
+
+No more bound: New rule.
+1. Purify thyself
+2. Be in sunlight, day free from clouds
+3. Make the Call of the Aethyr in silence.
+
+Head of Dragon is but tail of Aethyr (see name of Aethyr). People see this fearful aspect of God and turn back. arrow/moon
+
+Arrow of Sun, fledged with plumes of Maat, plumes of Amoun, phallus of Amoun the Concealed One (yoni/phallus - see p. 201) Barb is the silver star from before.
+
+**ARROW = MIDDLE PILLAR.** launched by yesod
+
+He is blessed that is born under sign of arrow [Edward Kelley, who crowley declares 5=6 Adeptus Major, who founded the work. Crowley, of Aeon of Horus, Kelley=Isaiah, and Levi=John the Baptist; diagram of Holy Table giving only name of Saturnian angel STIMCUL {???}, has sigil on his head of crowned lion and body of snake and arrow therewith {cagliostro/crowley... or crowley/achad}
+
+Upward arrow = Yesod YHVH (Yesod is Phallus of IAIDA) and yod a hand;
+downward = shot by topmost point of yod, "The HErmit", point not extended, night unto heart of Hadit.
+
+" 6. I am the flame that burns in every heart of man, and in the core of every star. I am Life, and the giver of Life, yet therefore is theknowledge of me the knowledge of death. "
+
+{A Day passes.}
+
+Teh Angel is not actually the angel of Aire - he was but a watcher on threshhold
+
+wingerd light, fountains of fire, mystery of wedge [kundalini phenomena]
+
+golden god-child with two snakes - one red one blue. [Eros holding ida and pingala - sexual nature of kundalini?]
+
+eros = 365. this would link him with Abrasax, Meithras and other solar-phallic dieties - see VIIº OTO and section of Gnostic Mass that mentions Abrasax. Solar-Phallic secret of OTO.
+
+LIFE IS A LONG INITIATION INTO SORROW [Binah]. And Isis is Lady of Sorrow, my mother, Nature; twin sister Nephthys, Perfection. Isis known by all by not Nephthys who is dark and feared.
+
+If you adore w/o fear, make your life an initiation into her Mystery, who has neither mother, father, sister, brother, wife, child—as lonely as hermit crab in waters of the GReat Sea (detachment/vairagya, Liber Cheth)=behold! glory of isis, and at end you commune w nephthys. and then wings of Maut beyond even these. pierce her heart with will - i am eros. slay me or thou shalt not unveil mystery of this aethyr. 
+
+He does so as NEMO (one black & one white arrow), because No man can do this thing. he shoots both him and himself, but he lives and she slain
+
+[JAE: Vision of Arrow = Kundalini rush]
+
+"It beams. It burns. It blooms." Crowley says this is a password of A.'.A.'., but JAE doesn't know what grade or know anything.
+
+Arrow = maat and Thoth crowns
+
+THAT WHICH IS ABOVE IS **NOT** LIKE THAT WHICH IS BELOW (and vice versa)
+
+What is above & what is below? There is division that divideth not, and multiplication that multiplieth not, and the one is the many [an essential mystery of Thelema].
+
+you sought remedy of sorrow; now all sorrow is thy portion - "God hath laid upon him the iniquity of all" thy blood in cup of Babalon ; thy heart the universal heart, bound about with green serpent of delight (heart girt w serpent). heart is that which rejoiceth; serpent of death, for each contain their own opposite. this is the mystery of the supernals. 
+
+
+[When you commingle your life with the ALL, the all is reciprocal.]
+
+**below abyss = contradiction is division**
+
+**above = contradiction is unity**
+
+nothing true except by virtue of contradiction that is contained in itself. (ye shall know truth by its paradox)
+
+seer's mind = universe. contest between vision and memories (new input and samskaras?) great wind sent forth to banhammer him. you're still an 8=3, dude.
