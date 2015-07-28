@@ -3406,3 +3406,686 @@ you sought remedy of sorrow; now all sorrow is thy portion - "God hath laid upon
 nothing true except by virtue of contradiction that is contained in itself. (ye shall know truth by its paradox)
 
 seer's mind = universe. contest between vision and memories (new input and samskaras?) great wind sent forth to banhammer him. you're still an 8=3, dude.
+
+<Center><h1><p style="font-family: Enochian Writing">PAZ</p></h1></center>
+
+<center>The 4th Aethyr, PAZ.
+Chesed in Atziluth.
+“The marriage of yod and he. (The common Tibetan symbol.) The Seer identifies himself with it."
+Cancer/Taurus/Leo: Emerald
+Chariot/Hierophant/Lust</center>
+
+Comment: “Further concerning the Magus. The marriage of Chaos with the purified Virgin."
+
+[JAE: 88, passionate, burning etc]
+
+Hierophant, Microprosopus, Demiurge, appearing in the House of the Sun.
+
+Brilliance of Lord (Chokmah) whose feet are set upon he that forgiveth transgression (Chesed). 
+
+Sixfold star that flames in Vault, seal of marriage of great White KIng & black slave (Crow: occurs in Alchemical AND Tibetan. Interesting that Tibetan imagery begins to appear here.
+
+[In mathematics, the root system for the simple Lie group [G2](https://en.wikipedia.org/wiki/G2_(mathematics)) is in the form of a hexagram. - nice image!]
+
+<center><img height = 400 src=https://upload.wikimedia.org/wikipedia/commons/thumb/4/42/Root_system_G2.svg/1200px-Root_system_G2.svg.png></center>
+
+Wiki:
+
+"In Buddhism, some old versions of the Bardo Thodol, also known as The "Tibetan Book of the Dead", contain a hexagram with a Swastika inside. It was made up by the publishers for this particular publication. In Tibetan, it is called the "origin of phenomenon" (chos-kyi 'byung-gnas). It is especially connected with Vajrayogini, and forms the center part of Her mandala. In reality, it is in three dimensions, not two, although it may be portrayed either way."
+
+Note: Both Unicursal hexagram *and* Endless Knot are [7₄ knots](https://en.wikipedia.org/wiki/7%E2%82%84_knot)
+
+In stone, 6fold star. Blue and golden angels. [Vau in middle of Enochian name uniting sun and moon]
+
+Day be-with-us at hand. Universe created and overthrown so he can take his pleasure therein. Gold beheld therein. 1000 arms, lightning eyes, seas of blood [Tibetan again? Avalokiteshavara? His wrathful form, Kayagriva, usually only has 2 arms... ] Tau on forehead, crown of every deadly thing. His shakti is Babalon's daughter, become rosy by his force; her purity has tinged his black w blue.
+
+{This also sounds perhaps like Mahakala and Vajrayogini}
+
+<center><img src="http://www.exoticindiaart.com/buddha/mahakala_in_yab_yum_te15.jpg"></center>
+
+[JAE: Shiva/Shakti union as image of Da'ath. Eh??? As uniting of opposites?]
+
+[Angels are in princess scale of Chesed colors - Chashmalim]
+
+All pain in universe but one gust of wind in tempest-scream of that ecstasy—**Love Under Will.**
+
+[There is language about senses throughout higher aethyrs, suggesting the elements or worlds; this is mapped in JAE]
+
+Seer = expression of humanity = 666, so his senses = humanity's. 
+
+tearing asunder IS crushing together (supernal logic). 
+
+**all double phenomena = ways of interpreting single phenomena = peace.**
+
+Chaos is Peace. Cosmos is the War of the Rose and the Cross. (United by Love Under Will.)
+
+KhAOS (XAOS) = Chokmah
+KOSMOS = Binah. (Greek.)
+
+Genesis 1: Blackness before the beginning of the light. This is CHAOS, Eternity, all contradictions in terms. The Universe = reflection in the Abyss. The Devil = vibrateth between Chokmah and Tau.
+
+NOX, night. evil of night cover us from the rod of destiny, for cosmos must come, and balance set up where there is no need, because no injustice existed before. when balances are equal, then will CHAOS return. 
+
+**Thy mind is a mirror backed with false metal of lying, so everything seen is AVERSE.** everything you trust must confound thee, and everything that you fled from is your savior! Black Sabbath! {and sex with goat = Leah Hirsig at Cefalu}
+
+Fit Universe card above the Devil card to see sexual symbolism of A'ash.
+
+Liber A'ash. 
+
+4 elemental guardians are destroyed, mingled in the death-shriek of the Sphinx, for the blind man (phallus?) has profaned her mystery. (Fool.) AVYARTh=687 ["has conceived seed"] is his name (Aiwass in full?) (Path traced on tree.) Subsuming the tree, spirit matter, peace, power, Chaos and Night and Pan; Babalon is his concubine, and he has begotten a virgin that he has deflowered. [YHVH.] [Star Ruby expounds this full YHVH/incestual symbolism.]{Beast?} {Adam Kadmon?} Philosopher's Stone, seal on tomb of YHVH, XIº elixir, red powder that is grinding up bones of 333.
+
+Lion vs. Bull = S v N
+Man v Eagle = E v W
+Quintessence = Sphinx
+Slain by Oedipus (V), who slept with mother (Binah) and blinded himself to wander world as fool (Aleph-"Above wisdom").
+
+Oedipus-Aleph = The One who has transcended all opposites, yet is consort of babalon. 
+
+Titan in bed of Juno, Ixion broken on wheel. {Giving birth to Centaurs, Sagittarius - Samekh. Also Titan = TEITAN (Grk) = 666, and a word for adepts in general. [My locker code lol]} The child of BABALON (V in YHVH) is:
+VIR VIS VIRUS VIRTUS VIRIDIS [VVVVV] [Vi Veri Universum Vivus Vici]
+
+Thelemic Tetragrammaton:
+
+Y ChAOS
+H BABALON
+V VVVVV
+H "Malkah-Koré" (BABALON's daughter)
+
+Here is the vision of the daughter seated on the throne of her father - Y + H(final), creating a new universe.
+
+Malkuth, by union with Son (K&C) in Tiphareth, is placed upon the throne of her mother (Binah), and must then re-awaken the youth of her father (Chokmah) who first begot her upon her mother. [In her maturity, she is mate no longer of a boy but a man.]
+
+Persephone, daughter of Earth (Assiah) is wed to Hades, Hell, Hadit (Y) (Atziluth), hidden one, and by voluntarily eating his seeds/semen, she remains in Hell, not as captive slave but as Queen of Hell. Queen of Hell = H, Queen of Y, Hell.
+
+Constant copulation of Father w Daughter also = continuous pouring of yourself (will, all one is) into the world (one's circle/dharma).
+
+(Vajrayogini, the supreme Tantric diety above the Buddhas, is visualized as a red-skinned 16-year-old girl, [here](https://en.wikipedia.org/wiki/Vajrayogini).)
+
+(Note that Vajrayogini often appears in a Hexagram)
+
+<center><img src="https://upload.wikimedia.org/wikipedia/commons/9/96/Painted_19th_century_Tibetan_mandala_of_the_Naropa_tradition%2C_Vajrayogini_stands_in_the_center_of_two_crossed_red_triangles%2C_Rubin_Museum_of_Art.jpg" height = 400 ></center>
+
+Desolate is Aethyr (abomination of desolation? Jupiter/Chesed?)
+
+Beware... Angel HUA is about thee. [Pronounced HU. Means "he", is Kether, and oversees work of 2nd order GD.]
+
+Crowley also says in description of Aethyr at beginning of W.B. V&V that Y+H is depicted by Tibetan Kalachakra:
+
+<center><img height = 400 src="http://3.bp.blogspot.com/-WycPusfMhH8/TgiWY7oWFkI/AAAAAAAAAB0/aczD_SpvVFo/s1600/kalachakra+blog.jpg"></center>
+
+(Kalachakara = Wheel of Time, which would = Saturn = Binah; in congress with Chokmah. It is also an astrological system = Chokmah/Mazloth, and relates the human body to the astrological wheel (for "Buddha supremacy" as alleged by Trimondis). Many Kalachakra lineages claim direct inspiration from Vajrayogini herself. This is a very inexperienced read on my part, without much clear understanding of the Vajrayana.)
+
+<Center><h1><p style="font-family: Enochian Writing">ZOM</p></h1></center>
+
+<center>The 3rd Aethyr, ZOM.
+Binah in Atziluth.
+“'The Magus' of the Tarot (ATU I). Mayan, the Maker of Illusion. The Seer in Illusion (Lilith)."
+Leo/Libra/Aquarius: Violet
+Lust/Adjustment/Star</center>
+
+Comment: “The Magician. Exhibition of the Guards to the Higher Knowledge."
+
+Crowley: The perfect method for understanding Aethyrs is to study the book in detail in order to perfectly assimilate its intellectual content (done), and the read them aloud ceremonially (echoed by JAE). [Add to working methods.]
+
+[WB: Crowley misnamed this ZON, and it was ZON in workbook used in Algeria, but it is ZOM in Dee and in Liber Chanokh. ZOM = 44 - blood, 220/5]
+
+[JAE: ZOM = 117, ophel, thick darkness, also ZOM = za'am = word for anger]
+
+[JAE:
+
+1st Aethyr: Aleph
+2nd: Gimel
+3rd: Bet. Also all 3 = Kether by new scheme given in aethyrs]
+
+Stone: Angry light -> Clear light (see Bardo Thodol). Minute point of light = true sun, in circumference an emerald snake. joining them are rays which are plumes of Ma'at. Because distance is infinite, they're prallel from circumference, although diverge from center. no voice, no motion. The Snake Ananta feeds upon plumes of truth as upon itself, and contracteth
+
+[This assembled from incorrect read of symbols of Aethyr by Crowley]
+
+(I ALSO saw this in 2006. The snake eating its own tail in final Aethyrs that becomes Aleph [Kether?])
+
+Sigil of Aethyr: Gold/Azure/Green = severities (pillar of severity?)
+
+ALL Aethyrs are as Malkuth to complete Aethyrs 1-3 as three triads. 
+
+2nd reflection, palace of 280 judgements (Hall of Dead in Amenta?)
+
+Paths Resh Lamed Nun = course of flaming sword from side of Severity. other two paths = zain, sword, shin, tooth = 5 severities = 280 (paths that tend toward Pillar of Severity)
+
+[JAE: No. All letters having final forms. another misdirection]
+
+[If you open eye of real vision on this aethyr, your mental delusion will crumble = but they're misdirecting him not to?]
+
+House of Juggler = he has made worlds by wisdom, from which issue 74 judgments, that are teh 4 eyes of the doube-headed one, that are:
+
+Satan = Jesus
+Lucifer = Brahma
+Leviathan = Allah
+Belial = Buddha
+
+[JAE: This is intellectual distraction. God/devil heads and tails of same coin, but it's just an obsession to be overcome.]
+
+Hence (perhaps?):
+
+49. I am in a secret fourfold word, the blasphemy against all gods of men.
+
+50. Curse them! Curse them! Curse them!
+
+51. With my Hawk's head I peck at the eyes of Jesus as he hangs upon the cross.
+
+52. I flap my wings in the face of Mohammed & blind him.
+
+53. With my claws I tear out the flesh of the Indian and the Buddhist, Mongol and Din.
+
+54. Bahlasti! Ompehda! I spit on your crapulous creeds.
+
+true YHVH as destroying the false/Qliphothic YHVH (Ape of Thoth?)
+
+And there is Mary, a blasphemy against BABALON, who has shut herself up, resisting change (Chokmah), refusing love under will. MARY = 156.
+
+Hence she is the queen of the Black Brothers (seen earlier walking like ants in the Abyss - Christianity), the excrement of Choronzon. 
+
+55. Let Mary inviolate be torn upon wheels: for her sake let all chaste women be utterly despised among you!
+
+56. Also for beauty's sake and love's!
+
+Torn upon wheels = wheels = Chokmah
+beauty's sake = tiphareth
+love's = Chok + Binah, love under will
+
+[Another distraction = true up to a point but Mary IS Babalon]
+
+Binah, ruled by Bet (Babalon under power of magician) guards the Abyss. Perfect purity of above, redeemer of below. There is no way to the Supernal Mystery but by Babalon and the Beast, and the Magician Mayan is set beyond them to deceive the brother of blackness lest they make themselves into a crown (i.e. make  tree from Da'ath—the error of the Scientists and the Buddhists. This is an error because supernal logic convicts it of essential self-contradiction. Da'ath is the peak of the intellect, and therefore a demonstration that intellect is incapable of truth. This would = two trees = tree cast into Outermost Abyss. 
+
+From the Crown spring three delusions (Qliphoth of supernal paths):
+
+-(Aleph) = Madness = Incapacity to apprehend; absence of any steady Truth (volatility of air)
+-(Bet) = Falsehood = Assertion of false relations, even in illusion of Dyad
+-(Gimel) = Glamour = Clouding of aspiration by marsh miasma of desire
+
+[All forms of duality to be overcome]
+
+Aleph = Inspiration of soul in ecstasy
+Bet = Virtue of Truthfulness regardless of other issues
+Gimel = Direct link of human with divine Consciousness
+
+All beyond words of Chokmah?
+
+From Call 30: Confound her understanding w darkness" = you cannot speak this thing
+
+Magus of Taro, Mayan, who has created the great opposition, He IS NOT Chokmah, the creative Mercury that transmits essence of Kether as a logos. lower Mercury (Ape of Thoth?) asserts Dyad as Reality, denying Kether and Ain, issuing Materialism. right arm torch of flames blazing upward; left cup of poison, a cataract into Hell (clouding of eye of Chokmah, impeding light). On head: Evil circle of 3 concentric rings (unfulfilled by square or cross). Feet covered with sharp weapons (Yamantaka?) [Knife fashions shapeless things into beauty = task of Magus]
+
+42-fold Table of Wickedness., connected w 42 assessors of teh Dead, accusers that the soul must baffle w 42-fold name of god, Mystery of Iniquity, that there was ever a beginning at all.
+
+42 = 2 x 21. (AHIH, Kether x 2 = Thaumiel. 42 also = AMA, Mother unfertilized, female equivalent of Black Brothers)
+
+[JAE: Equation of Devil to Magician. 42 = 42-fold name of god from Sepher Pardes, 4=7 GD, letters of name diagrammed to 7 palaces. Wicked because formed from letters than began Creation, hence wicked]
+
+BY 4 weapons he casts forth veil after veil, 1000 shining colors ripping and tearing aethyr. saws teeth
+
+the mill in which Universal Substance (ether) is ground into matter. stench of human flesh and children's bowels thrust in his mouth. 
+
+Lilith = 480 = Malkuth of the 42-fold name in Yetzirah = Da'ath in plural. Woman of Night. Demons all created by nocturnal pollutions of Adam, those who have not consecrated themselves by right coitus,. 
+
+**EVERY SEXUAL ACT PRODUCES ITS NATURAL EFFECT ON ALL PLANES**, and all forms of spiritual experience may be obtained in this manner. A Child is always begotten on some plane or another.
+
+black monkey crawling with filth. 
+
+"Kill me! Kill me!" (Fill me/Kill me?)
+
+Lilith, so horrible, is a positive form created by Magus, whereas 333 is a breaking up of coherence. Mystery of Mysteries: Lilith = BABALON, as imagined by energy of Mayan.
+
+[Beast/BABALON - Mayan{Ape of Thoth}/Lilith?]
+
+Lilith as monkey = Cynocephalus, Ape of Thoth? [JAE y, or equated thereto]
+
+Because the magician is veiled, if you try to look upon him you fall under the spell of Lilith. Her blasphemy = She has taken the name of LIL the first aethyr, put it on her brow, and added a Y and Th for the sign of the cross.
+
+Squats on crucifix for her pleasure (Regan in the Exorcist)—so they that worship Christ sucks up her filth on their tongues (Peh?) and their breath stinks. (Christian obsessed w Mayan, sees love in this obscene form). [JAE also notes Exorcist thing. LIL + Yod (Phallus) + Tau (Cross)
+
+Black sigil of shining triangle, upright (Binah) comes upon face of sun. Illusion of Lilith is destroyed, replaced by Malkah-Kore in Supernal colors. Malkah Kore will appear manifest in a certain office in Temple. (Crowley notes-Hilarion? Relates images here to known women later—the ones that assisted in his Magus initiation.)
+
+Disk of sun as pair of balances, steady, green poisonous snake about central pole with long tongue rapidly darting. 
+
+Misericordia Dei - the Mercy of God - protects him from fully seeing aethyric vision.  opened eye that shields you from vision of Magician.. you have endured by not being man(?) (convoluted Supernal logic) you can understand in two ways because he is dyad. 
+1 - Amalekites (destruction?)
+2 - Beyond understanding (magus crowley says: cut to create instead of cut to destroy) - upright rather than averse, not known until wisdom informs understanding and a smooth point arises at base of supernal triangle (crowley: typical supernal logic)
+
+[JAE: Function of Adept in world: Being neither Human, nor of the Supernals, but acting as an intermediary or unconscious transferer between them.]
+
+[JAE: ALL of this before has been of Choronzon, possibly because Crowley flubbed this Aethyr by writing ZON instead of ZOM—hangover from ZAX? Is the Demon still with him? How much past ZAX is really Supernal and not just more Choronzonic illusions??]
+
+Binah-Sinai
+
+your mystery must match mystery of atheyr, and you must have silnce
+
+give sign of mater triumphans, for babalon = fortress against abyss and beth that blocks her from crown. 
+
+You must be made one with CHAOS (Chokmah) in order to begin the last, terrible projection, 3fold regimen which alone constitutes the gReat Work.  [JAE: This is approach to Ipsissimus by Magus] (Crow: Must be NEMO to understand. Formula of Feminine Trinity + All Father—KAOS-BABALON?)
+
+333 is shell/excrement of the 3 supernal paths (Qlipha of Alpeh, Gimel, Beth, and the 8-headed serpent of the GD. Da'ath is NOT the child of Chokmah/Binah—it is the qlipha of the supernal paths. {TIPHARETH is child of Chokmah/Binah} Da'ath is the SEXUAL ACT which produces that child. [Hence "fornications" of Chaos and Babalon = Tiphareth/HGA? This ecstasy is the "ultimate abasement" of 333 (abases or is the abasement of???) against whom BABALON proves victorious]
+
+[Rosenroth (Mathers):](http://www.sacred-texts.com/jud/tku/tku39.htm) (& etc.(
+
+633. And when that stone 1 goeth forth there cometh a tempest and a storm upon the great sea 2 and its waters are troubled, and (their motion soundeth as) a voice, and they are heard by the great fish which is called Leviathan.
+
+634. And this stone goeth forth, and is whirled onward in the current of the sea, and goeth forth thence; and this, is so great a blackness 3 that beside it all other blacknesses are as nought (otherwise, now it is withdrawn because all the other paths are hidden and enshrouded by it).
+
+635. And such is the blackness of the black (part of) the eye, which includeth and concealeth all the remaining blacknesses; and about that blackness there is found a certain red thread (of colour) which surroundeth that blackness.
+
+636. The third colour is the yellow of all yellows, which includeth and concealeth all other yellows, and in the circumference of that yellow there whirl around two threads (of colour), a red thread on the one direction, and a black thread in another direction; and they surround that yellow colour.
+
+637. But when that white brilliance whirleth around it, and the eye flameth with that white brilliance, all those other colours are not at rest, and are submerged in the lowest depths thereof; the red, the yellow, and the black are not seen, only that white brilliance alone; which receiveth its light from Him, even from the Ancient of Days.
+
+638. And from that (white brilliance) all the inferiors shine, neither is any colour seen save that white brilliance alone. And therefore are all the lords of redness and blackness, which are as it were twin (colours), displaced.
+
+639. This is the same which is written, Cant. iv. 2: "Which go up from the washing, which are all twins."
+
+640. What is this, "From the washing?" From that white brilliance of the excellent holy eye; for all are twins, the one (colour) is as the other.
+
+Aethyr:
+
+The vision is naught such that any can endure it (is this why I've been so blasted the last 3 days?)
+
+Come back, give sign Mater Triumphans (Isis Rejoicing), call upon name CHAOS four times (four-fold world equal to the seven-fold word BABALON). (Biroco was right.)
+
+New rendering of XOAS in Hebrew: KA'aOS = 156 = BABALON. (7=4 formula) 
+
+<Center><h1><p style="font-family: Enochian Writing">ARN</p></h1></center>
+
+<center>The 2nd Aethyr, ARN.
+Chokmah in Atziluth.
+“The Marriage of the Seer with BABALON. (Atu VI.)"
+Taurus/Pisces/Scorpio: Scarlet
+Hierophant/Moon/Death</center>
+
+Comment: “The Understanding of the Curse, that is become a Blessing. The final reward of the Magister Templi, his marriage even with Babalon Herself. The paean thereof."
+
+[Marriage with Babalon. Fuck. Angelina. Etc. IS my true error that I am confusing the terrestrial officers (Angelina, Season) with the Supernal deity? Very, very, very likely. Confusing the planes, bro. I've thought it before but is it here confirmed?]
+
+[The vision of God face-to-face by 777]
+
+[JAE: 251. ARN = Ark, of covenant. The Holy of Holies. With different pointings, ARN = cedar wood {clue to construction of Holy Table?}; wild goat]
+
+Crowley: ARN= Nun Qoph Vau, 156, Babalon. 
+
+Babalon rides Beast (Vau).
+
+[JAE: Built-up images at beginnings of Aethyrs are "admission badges" (a la G.'.D.'.), built up from the astrological images in each Aethyr name]
+
+Assyrian woman with fish {Dagon? Fish gods? http://www.jstor.org/stable/4200248?seq=1#page_scan_tab_contents }, Eve and Serpent (Cain as child of Eve and Serpent, not Eve and Adam), when he had slain his brother, who was first murderer, having sacrificed living things to his demon, Cain had mark on brow = mark of the Beast in Apocalypse, the third eye, pineal gland, eye of shiva, mark of initiation. God did not hear the children of Eve until blood was shed. (Bloody Sacirifice would be reprehensible if not for Theory of Evolution—you take in the karma of slain creature {Tibetan idea}. The most fortunate death for an animal which is of course doomed to death is the transfer of its prana in an actual ceremony or material basis of its karma in eating it at the table into a living organism of superior type. *Do not let the prana escape.*
+
+Shedding of blood necessary = formula used to consecrate Tabernacle that house the ark. 
+
+Mystery of Sixth Key of Taro, called not the Lovers but the Brothers = God didn't listen to Cain until he had shed blood. [Also Bowman is Father Yod and the Man, Son, Vau; Women are Isis and Nephthys, H and H-final.... too elaborate for comment?]
+
+Lovers:
+
+Middle is Cain, right hand Hammer of Thor (swastika) with which he slew brother, wet w blood. Left hand open as sign of innocence. Right hand Eve, entiwned with serpent with hood behind her head. Left hand is figure like Kali, more seductive—Lilith. Above is sigil of arrow, downward, struck through heart of child—Abel—but also Seth, Set, Sol, Hadit. Abel's blood = seed of Seth. Abel = Baal.
+
+Correct fable from which Fall was stolen. 
+
+The Apocalypse was piecework from various shits. And this is why the "end of the world" never appears.
+
+Crow: "'Angels' who offer absurd theories about material affairs are false elementals who amuse themselves at the expense of the naivete of the would-be magician." Also, you can't make actual numeric IRL calculations from QBL - i.e. if somebody reigned 120,000 years, it means congruous w idea 120, on a grand scale (x 1000) - numbers as metaphorical language.
+
+White rose. No more red roses, because she has crushed all the blood into her cup. {Crow says that at one time it seemed as if it were on the breast of a beautiful woman, but that idea had no subsistence. See my note at very beginning of aethyr. Terrestrial officers of "scarlet woman" are just women in the end.}
+
+White rose in beak of swan Michaelangelo (? Leda and Swan?)
+
+[Swan = Symbol of ecstasy. Paramhansa]
+
+Crow at limit of powers, breaks, feeling fear.
+
+Crowley can't go any farther because he's at his pain threshold. 
+
+You cannot feel imprint of her feet until your dust scatters earth, and you dare see her face!
+
+White that contains all colors (Kether), yet other colors also seen directly along with white. "Hyperabyssic Logic." The color of anything is but its DULLNESS and OBSTRUCTIVENESS. 
+
+TRue light colorless so pure soul is black = absorb all of your projections into yourself so that you become black. Therefore you can infer the colorless light...(?)
+
+Every idea merely marks where the mind is too stupid to see the light, and therefore obstructs it. (!!!!) Pure light is colorless; pure soul is black. (Maya.) = Mystery of incest of CHAOS with his daughter (Malkah-Kore). [Samyama](https://en.wikipedia.org/wiki/Samyama) on this.
+
+2nd Aethyr is so beyond conception that there is nothing in your mind into which it can cast conception, so pure it prevents formation of images, and hence is called darkness. Any lesser light reflects and causes "diverse palaces" (illusion)-ie in my Father's house (Bet) there are many mansions. Victory of Babalon over magician that ensorcelled her.
+
+As Mother: 3 x 52 = 156
+As Harlot: 6 x 26 = 156
+As Pure Unity (as Tablet): 12 x 13 = 156
+As victory over power of 4: 4 x 39 = 156
+As destroyer of great Sorcerer: 2 x 78 = 156
+∑1-4 = 10, set her daughter upon her own throne and defile her own bed with her virginity
+
+Rule of Contraries: Achad abused the hell out of it, leading to all of his errors.
+
+[As I'm writing this I look at Reddit, and on front page somebody has announced a project to do art for fallen angels in [Book of Enoch](http://www.reddit.com/r/pics/comments/3ersmu/im_painting_the_20_leaders_of_the_fallen_angels/)]
+ 
+Crowley here gives an interpretation of Call 19 from the view of the Supernals. 
+
+Crowley: The call should read "For why, it rejoiceth me concerning the Virgin and the Man," but Kelley substituted a line from Genesis 6:7 and wrote "It repenteth me that I have made Man." Crowley says Kelley was block by his orthodox Christianity and Dee forced him to reject True Messengers (?), who "discourse implied antinomian Pantheism" (Casaubon p. 206, also:
+
+Genesis 6:7King James Version (KJV)
+
+7 And the Lord said, I will destroy man whom I have created from the face of the earth; both man, and beast, and the creeping thing, and the fowls of the air; for it repenteth me that I have made them.) [This on the doctrine of Jesus not being God, etc.?]
+
+19th Call reinterpreted as about a universe of joy and rapture and non-restriction - Thelema, each fulfilling its joy of function even "evil spirits", no arbitrary and ideal standard of what "ought to be"
+
+Beginning Berashith with B instead of Aleph the blackest of black doctrines of black brothers (indeed.)
+
+ARR = cursing
+
+Once again mentioned that the stars are all letters of the Holy Alphabet. 
+
+[19th call not a curse but really a call of rejoicing at opening of 9th Aethyr and beyond]. 
+
+IADNAMAD = eight letters, secret name of god (octinomos - baphomet?), letter cheth-aethyr 12
+
+IADNAMAD in Hebrew = 111, Aleph
+
+Aleph in "Alphabet of Arrows." [where is this from? Also corresponds to I Ching Hexagrams] {Characters represent direction of Will-energy in various shapes, rather than the nature of energy—Atziluth as Hexagrams are, perhaps, Briah. Is this in 776 1/2?} The characters are similar to and correspond to Enochian.
+
+[Crowley was on top of the Hotel Royal in Biskra. Note the primary colors at least at present.]
+
+<center><img src="http://static.panoramio.com/photos/large/89715563.jpg"></center>
+
+Fire across body (kundalini phenomena—fire attribution of Chokmah/alphabet of arrows).  Festering and rotting - burnt like Prometheus. [JAE: When Pingala is stronger current than Ida]
+
+Uses sign of rending veil, to no avail. His senses give out & he is exhausted.  He goes to hot springs.
+
+--
+
+Black pyramid of Binah, androgynous phallic pyramid, unit of City below the night of Pan. 
+
+At the top is vesica pices... curves turned round to become Pisces
+
+How can the Magister Templi, buried in the pyramids, behold that which descends unto the apex.
+
+14. Above, the gemmed azure is
+The naked splendour of Nuit;
+She bends in ecstasy to kiss
+The secret ardours of Hadit.
+The winged globe, the starry blue,
+Are mine, O Ankh-af-na-khonsu!
+
+16. For he is ever a sun, and she a moon. But to him is the winged secret flame, and to her the stooping starlight. 
+
+19. O azure-lidded woman, bend upon them!
+
+4
+ΚΕΦΑΛΗ Δ
+PEACHES
+
+Soft and hollow, how thou dost overcome the hard and full!
+
+It dies, it gives itself; to Thee is the fruit!
+
+Be thou the Bride; thou shalt be the Mother hereafter.
+
+To all impressions thus. Let them not overcome thee; yet let them breed within thee. The least of the impressions, come to its perfection, is Pan.
+
+Receive a thousand lovers; thou shalt bear but One Child.
+
+This child shall be the heir of Fate the Father.
+
+COMMENTARY (Δ)
+
+Daleth is the Empress of the Tarot, the letter of Venus, and the title, Peaches, again refers to the Yoni.
+
+The chapter is a counsel to accept all impressions; it is the formula of the Scarlet woman; but no impression must be allowed to dominate you, only to fructify you; just as the artist, seeing an object, does not worship it, but breeds a masterpiece from it. This process is exhibited as one aspect of the Great Work. The last two paragraphs may have some reference to the 13th Aethyr (see The Vision and The Voice). 
+
+
+15
+ΚΕΦΑΛΗ ΙΕ
+THE GUN-BARREL
+
+Mighty and erect is this Will of mine, this Pyramid of fire whose summit is lost in Heaven. Upon it have I burned the corpse of my desires.
+
+Mighty and erect is this Φαλλοσ of my Will. The seed thereof is That which I have borne within me from Eternity; and it is lost within the Body of Our Lady of the Stars.
+
+I am not I; I am but an hollow tube to bring down Fire from Heaven.
+
+Mighty and marvellous is this Weakness, this Heaven which draweth me into Her Womb, this Dome which hideth, which absorbeth, Me.
+
+This is The Night wherein I am lost, the Love through which I am no longer I.
+ 
+COMMENTARY (ΙΕ)
+
+The card 15 in the Tarot is "The Devil", the mediaeval blind for Pan.
+
+The title of the chapter refers to the Phallus, which is here identified with the will. The Greek word Πυραμισ has the same number as Φαλλοσ.
+
+This chapter is quite clear, but one my remark in the last paragraph a reference to the nature of Samadhi.
+
+As man loses his personality in physical love, so does the magician annihilate his divine personality in that which is beyond.
+
+The formula of Samadhi is the same, from the lowest to the highest. The Rosy-Cross is the Universal Key. But, as one proceeds, the Cross becomes greater, until it is the Ace, the Rose, until it is the Word. 
+
+
+Motherhood symbol of masters. Virginity given up to be destroyed, seed lie hidden in then, nine moons wax and wane, surround with Universal Fluid. Fed with blood for fire. child lives. and then there is much suffering and joy, and then they are torn asunder, and this is all their thank, that they give it to suck
+
+3
+ΚΕΦΑΛΗ Γ
+THE OYSTER
+
+The Brothers of A∴A∴ are one with the Mother of the Child.4
+
+The Many is as adorable to the One as the One is to the Many. This is the Love of These; creation-parturition is the Bliss of the One; coition-dissolution is the Bliss of the Many.
+
+The All, thus interwoven of These, is Bliss.
+
+Naught is beyond Bliss.
+
+The Man delights in uniting with the Woman; the Woman in parting from the Child.
+
+The Brothers of A∴A∴ are Women: the Aspirants to A∴A∴ are Men.
+
+COMMENTARY (Γ)
+
+Gimel is the High Priestess of the Tarot. This chapter gives the initiated feminine point of view; it is therefore called the Oyster, a symbol of the Yoni. In Equinox X, The Temple of Solomon the King, it is explained how Masters of the Temple, or Brothers of A∴A∴ have changed the formula of their progress. These two formulae, Solve et Coagula, are now explained, and the universe is exhibited as the interplay between these two. This also explains the statement in Liber Legis I, 28-30. 
+
+Black Cross extending to top and edges of stone. [More Ma'at badge]
+
+Black Triangle, apex downwards. In center, face of Typhon. lord of tempest. Despair! Despair! Deceive virgin, cahole mother, but what will you say to ancient whore throned in Eternity?
+
+Flaming Sword that strikes the head of the serpent that raises to Da'ath. 
+
+You cant woo her with love because she is love (similar to logic used in ZAX) [Netzach]
+Not gold, because all have showered her w gold [Tiphareth]
+Not knowledge, because she has spurned knowledge [Da'ath]
+Not wit, because her lord is wit [Hod-Chokmah]
+
+Creatures of water = evil, passivity/
+activity of energy=idea of joy
+
+great black rose, stalks the black snakes of hell. but a single thought informs so  = hope.
+
+medieval:
+sub rosa = beneath the rose, secret
+sub rosa nigra = beneath the black rose, really secret
+
+156 black petals.
+
+babalon breaks through. 
+
+Straining towards Nuit
+
+A ka dua
+
+Faluti x 2
+
+Becomes Lucifer, Belilal, Satan as he is cast off from the Rose of Babalon as Qlipha
+
+The truth of each grade is the falsehood of the next
+
+AHA = 7 = Venus
+
+Take form of Hadit before Nuit and sing A Ka Dua
+
+Hadit as mathematical expression, not god. 
+
+Aethyr impenetrable
+
+Voice of those in each grade is silence to the nxt lowest down.
+
+Sight = Fire = 1st angle of Tablet [JAE: mistake - his intellect is flipping out; also experiencing cold kundalini flashes even as he is immersed in hot water]
+Hearing = Spirit = Center thereof
+
+To hear voice of Aethyr, invoke it in the night, having no light but that of the half moon. Lay bear womb of understanding to violence of Chaos. 
+
+Aha x 7
+
+Bathyllic language
+
+Song of Sphinx, song of syrens. Whoever hears is lost (Diminished value of the rest of Crowley's life)
+
+Song of OAI - mystical attainment - used in Liber Stellae Rubae
+
+Babalon as feminine or Androgyne equivalent of Pan
+
+Another language cometh (lots of languages emitting from Chokmah)
+
+Babalon confers immortality. 
+
+Druid circle... Crowley is ravished and breaks trance. 
+
+DOING THE THING FOR THE THING'S SAKE IS CONCENTRATION. Al I:44 Pure will... this is the true Magick. Fath, kosher, lawful. Work vitiates an operation, paradoxically enough.  [concentration = lose yourself in every impression. this concentrated surrendering - each experience becomes a sacrament]
+
+Hundreds of visions, angel in each (he's tripping out)
+
+Angel described. 
+
+Eagle swallows aethyr: THE HOUSE ALSO OF DEATH. white eagle of alchemists. mighty sounds entered into every angle. 
+
+They have awakened angels of aethyrs that have slept 300 years. Shin = resurrection
+
+[JAE: 300 year cycles. 1312 - knights templar disbanded, de molay burned. 1604 - fama fraternitas written, published 1612. 1904 - legis written, published 1912.
+
+2nd triad complete. Only Heru-Ra-Ha remains. (Child of suffering, osiris / father of justice, maat) Voice of Atehyr ends never, as N is final letter, N = AUMGN, N= Scorpio, Sexual Immortality, Perfection through Putrefaction
+
+[hriliu in greek = 156]
+
+
+<Center><h1><p style="font-family: Enochian Writing">LIL</p></h1></center>
+
+<center>The 1st Aethyr, LIL.
+Kether in Atziluth.
+“The vision of the Crowned and Conquering Child, the Lord of the Aeon."
+Cancer/Sagittarius/Cancer: Gold
+Chariot/Art/Chariot</center>
+
+Comment: “The final manifestation. All leads up to the Crowned Child, Horus, the Lord of the New Aeon."
+
+LIL: 76, secret, refuge. Heb: 70, Eye of Horus
+
+Chariot/Art: Liber Samekh and Liber Cheth, Angel and Abyss, primary instructions
+
+Liber Tav: Aleph, Cheth, Samekh in row. 
+
+LIL also = night in Hebrew
+
+LIL = 66 [!] *if* you take L's as gimels, but abandoned later on (huh?)
+70 = sod, secret of mysteries
+
+66 = ∑1-11 = Aleph, path Aleph.
+
+opening is prayer from 2nd point 5=6 ceremony
+
+IAIDA = The Highest (not Most High?)
+
+It would take an Ipsissimus to truly hack LIL.
+
+Peace. NO tendency of any sort. Whole night of space with no dawn (NOX). 
+
+Little child covered with lillies and roses [roses!!!] supported by myriads of Archangels, colorless brilliance, each blind, legions upon legions. sigil of Beast on his forehead. all spriitual and physical senses fail. 
+
+Sigil of Beast = moon & sun conjoined. Sigma + Theta (Shin + Teth), force and fire, hieroglyph for "Set.", and by qbl 9 chambers = 93. This was also on Aiwass and on the Beast in visions
+
+rapture beyond ananda. 
+
+Great and terrible angel, HGA, comes in, blinding him from vision in sleep.
+
+gone up to child led by two angels abasing his head. Child described in "Garden of Janus"
+
+xXIV
+
+More; in this journey I had clean forgotten
+The quest, my lover. But the tomb
+Of all these thoughts, the rancid and the rotten,
+Proved in the end to be my womb
+Wherein my Lord and lover had begotten
+A little child
+To drive me, laughing lion, into the wanton wild!
+
+XXV
+
+This child hath not one hair upon his head,
+But he hath wings instead of ears.
+No eyes hath he, but all his light is shed
+Within him on the ordered sphere
+Of nature that he hideth; and in stead
+Of mouth he hath
+One minute point of jet; silence, the lightning path!
+
+XXVI
+
+Also his nostrils are shut up; for he
+Hath not the need of any breath;
+Nor can the curtain of eternity
+Cover that head with life or death.
+So all his body, a slim almond-tree,
+Knoweth no bough
+Nor branch nor twig nor bud, from never until now.
+
+XXVII
+
+This thought I bred within my bowels, I am.
+I am in him, as he in me;
+And like a satyr ravishing a lamb
+So either seems, or as the sea
+Swallows the whale that swallows it, the ram
+Beats its own head
+Upon the city walls, that fall as it falls dead.
+
+every volition inhibited
+
+child danceth not because he is the soul of the dances. dew on all fire, every drop a quintessence of ecstasy of stars. 
+
+led to him prostrating 7 times every step
+
+child of all who is father of all, from me come forth all things that I might be. 
+fountain of snows
+eternal sea
+lover
+beloved
+first-fruits of their love
+first faint shuddering of light
+loom wherein night weaves impenetrable veil
+
+captain of hosts of eternity, e v w and w v e = I am Peace
+
+all things, all things. Alpha and Omega.
+
+non-dual: light, night, war, pace, weakness, strength, that which is beyond [5 triads = Geburah?]
+
+You have all powers of Sephira and Paths. 
+
+3, 4 times holy are thou, not by favor or magick alone is this won. "Unto the persevering mortal the blessed Immortals are swift."
+
+PERSEVERENCE IS ALL.
+
+Essentially: "You're a made man."
+
+[JAE: Ultimate protective spell: Harpocrates is invulnerable to all harm—this frictionless going is to know and do one's own true will]
+
+Your enemies will be brought to serve you and you will feast at the Supernal banquet
+
+I am the Crowned and Conquering Child whom thou knewest NOT!
+
+Pass to the Cubical Altar of the Universe, receive every tribe/kingdom/nation into mighty Order that reacheth from the frontier fortresses that guard the Uttermost Abyss unto My Throne (Supernals to Da'ath).
+
+This is formula of Aeon.
+
+LIL = LAMP OF INVISIBLE LIGHT. [LIL, Mexico, was where Crowley began the visions] [Experiment of having ever-burning lamp in temple with elemental, planetary, zodiacal talismans, daily invocations, making it a consecrated center of spiritual energy.]
+
+LIL = Kether and Aleph
+
+The end.
