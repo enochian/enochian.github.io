@@ -220,6 +220,16 @@ Like the Dee manuscripts, the Sworn Book was part of the initial Sloane material
 
 The seal would re-appear in the 20th century as the seal of Aleister Crowley's A.'.A.'., where it is explicitly connected with the goddess BABALON, who appears at the very end of the Spirit Diaries. Both BABALON and the Seal make repeated appearances in *The Vision and the Voice*.
 
+### On Astrology
+
+James A. Eshelman's use of astrology to refine the analysis of Enochian visions, as shown in *Visions & Voices*, is immensely useful in winnowing out "ambient" astral information from the content of the visions themselves. While we have imprecise times and dates for the workings, we may be able to reconstruct some of this approach to Dee and Kelley's sessions.
+
+As far as dates: Elias Ashmole on dates of “2nd Book” (is this Secundus or a section of Secundus)? states: Between March 21 - April 28 1582, records are wanting. Michael angry Dee has been slack on the 28th. Ashmole suggests that actions were on March 21 and April 28, and between them not much happened—some kind of falling out between Dee and Kelley which was reconciled.  
+
+Location: Mortlake is located at 51n28, 0w16
+
+Charts with approximated times will be included with each action. These are imprecise as we don't have the right time ranges. Where available, times will be guessed from the records (i.e. in Action Six, the Dee and Kelley ask the angels if they can leave for dinner at a certain point).
+
 ### On Angelic Cryptography
 
 The forty characters are obviously cryptography. The question is: What's the code? Each white creature gives some variation on a letter/number combination—Roman letters, although Dee later annotated *Secundus* to suggest that these letters be changed to Enochian characters. The following codes *may* be successfully applied (if we work backwards from *The Vision and the Voice*):
@@ -228,11 +238,13 @@ The forty characters are obviously cryptography. The question is: What's the cod
 - Hebrew Qabalah and Gematria, in comparison with:
 - Enochian Gematria
 - Latin Qabalah Simplex
-- Astrological data. Unfortunately, we don't have precise times of working.
+- Astrological data.
 - Comparison with the rest of the Dee material.
 - Comparison with Elizabethan cryptography techniques in general. (Walsingham.)
 
 ## Sixth Action (March 1582)—"40 White Creatures of Sigillum Dei"
+
+<center><img src="https://i.imgur.com/G3v9ofX.gif"></center>
 
 *Dramatis Personae.* Dee, Kelley, Michael, Uriel, Semiel, and the 40 White Creatures.
 
