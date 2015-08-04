@@ -236,6 +236,10 @@ Charts will be drawn using Sidereal astrology (Fagan/Bradley calculation), for t
 
 The forty characters are obviously cryptography. The question is: What's the code? Each white creature gives some variation on a letter/number combination—Roman letters, although Dee later annotated *Secundus* to suggest that these letters be changed to Enochian characters. The following codes *may* be successfully applied (if we work backwards from *The Vision and the Voice*):
 
+- Transliterations of Latin words into English words into Enochian words (using Laycock) and adding Hebrew Qabalistic analysis. 
+
+[For instance: An angel in Action Six states "Regnabit Iniquitas pro tempore." = "Wickedness will rule for a time." In Enochian, wickedness = BABALON. Time = CAPIMAO; Rule = BOGPA, SONF. Babalon bogpa capimao. (Or thereabouts.) The key, however, is that in Qabalah, Time = Saturn, and Saturn = Binah, the sphere of Babalon, who is the Queen of the City of the Pyramids (Binah). So literally "Regnabit Iniquitas pro tempore" = "Wickedness will rule for a time" may = "Babalon reigns in the City of Pyramids."]
+ 
 - Associations of the colors, functions and actions of the angels to Qabalah
 - Hebrew Qabalah and Gematria, in comparison with:
 - Enochian Gematria
