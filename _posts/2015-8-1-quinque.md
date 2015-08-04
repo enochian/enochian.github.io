@@ -230,6 +230,8 @@ Location: Mortlake is located at 51n28, 0w16
 
 Charts with approximated times will be included with each action. These are imprecise as we don't have the right time ranges. Where available, times will be guessed from the records (i.e. in Action Six, the Dee and Kelley ask the angels if they can leave for dinner at a certain point).
 
+Charts will be drawn using Sidereal astrology (Fagan/Bradley calculation), for the simple reason that Tropical is not accurate.
+
 ### On Angelic Cryptography
 
 The forty characters are obviously cryptography. The question is: What's the code? Each white creature gives some variation on a letter/number combination—Roman letters, although Dee later annotated *Secundus* to suggest that these letters be changed to Enochian characters. The following codes *may* be successfully applied (if we work backwards from *The Vision and the Voice*):
@@ -244,7 +246,7 @@ The forty characters are obviously cryptography. The question is: What's the cod
 
 ## Sixth Action (March 1582)—"40 White Creatures of Sigillum Dei"
 
-<center><img src="https://i.imgur.com/G3v9ofX.gif"></center>
+<center><img src="https://i.imgur.com/9LB2u4D.gif"></center>
 
 *Dramatis Personae.* Dee, Kelley, Michael, Uriel, Semiel, and the 40 White Creatures.
 
