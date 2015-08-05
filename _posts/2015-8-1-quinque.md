@@ -517,14 +517,20 @@ Innon
 Aaoth
 Galethog
 
-<p style="font-family: Enochian Writing">
+<center><p style="font-family: Enochian Writing">
 Galas
+
 Gethog
+
 Thaoth
+
 Horon
+
 Innon
+
 Aaoth
-Galethog</p>
+
+Galethog</p></center>
 
 
 
