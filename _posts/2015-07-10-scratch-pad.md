@@ -92,3 +92,17 @@ We can find a perfectly clear refutation of this attitude in the Enochian Aethyr
 
 
 -There seems to be a recurring effort of the Enochian entities to strip away social conditioning. They not only urged the wife-sharing between Dee and Kelly [MADIMI and GABRIEL], they also initiated the passive homosexual surrender of Crowley to Victor Neuberg in the midst of the 14th Aethyr [Angel of 14th - check names in Chanokh]. Much of the doctrine of the *Vision and the Voice* overturns and disintegrates the symbology and restriction of Christianity; similarly, the Angels’ proclamation to Kelley that Jesus should not be worshipped as god, that there is no sin, that reincarnation is real, etc. suggests highly modern and modernizing beings. Reading the *Vision and the Voice*, for instance, one gets the odd sensation of a writer who could be this present author’s great-great-grandfather pronouncing social views that still seem shockingly progressive for the early 21st century.
+
+"At its most extensive, the British Empire comprised 57 colonies, dominions, territories or protectorates from Australia, Canada and India to Fiji, Western Samoa and Tonga. **From London, the British ruled about 20 percent of world’s population and governed nearly 25 percent of the world’s land mass, according to calculations by British researcher Stephen Luscombe.** The spread of British influence, including the English language, gave birth to the United States, the world’s only superpower; the world’s largest democracy in India; and, perhaps inadvertently, disseminated British concepts of freedom, democracy and common law around the globe. On the negative side, Britain once corrupted an entire nation, China, with opium purely to extract drug revenues, and its haughty, racist dominance of subjected peoples left generations of rage in its wake in many countries (not least of which are some of those closest to home, like Ireland)."
+
+http://www.politico.com/magazine/story/2014/08/the-sad-end-of-the-british-empire-110362.html#ixzz3hygeNGy7
+
+"Mark Curtis writes, in his aforementioned book: "The reality is that British governments bear significant responsibility for global poverty-not only as a former colonial power that shaped many of the current unjust structures, but in their championing of a world trade system and economic ideology that enriches the few and impoverishes many more...Yet I do not think I have ever seen a media article that mentions that Britain might in some way systematically contribute to poverty in the world. Is this not extraordinary?" Remarkable certainly, and extraordinary perhaps so, but somehow this tallies with everything anyone who merely wishes to be honest about the British Empire, and about the realities of empire; those of unequal power and wealth relations, and of little or no moral culpability or responsibility. The fuel of the British Empire was not coal or wool after all, but an incredible lack of concern for those trampled underfoot in the quest for bigger and bigger profits."
+
+http://www.britishempire.co.uk/article/liverpool.htm
+
+https://en.wikipedia.org/wiki/Roanoke_Colony
+
+https://en.wikipedia.org/wiki/Jamestown,_Virginia
+
+https://en.wikipedia.org/wiki/British_Empire
