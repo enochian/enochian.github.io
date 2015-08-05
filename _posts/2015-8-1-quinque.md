@@ -421,6 +421,112 @@ Michael on decrypting the circumference: Start with 4 (over T) and read to the r
 <center><img src=https://i.imgur.com/KiiKv0v.png></center>
 
 
+You read until you hit a letter block with no number. So the first one would be:
+
+thAaoth
+
+[Note: Aa seems to suggest Hebrew. Heb. would be:
+
+ThA'aoTh - Tau Ayin Vau Tau - Earth Capricorn Taurus Earth - all Earth signs. Heb: 876. (Nothing by Lib 500)
+
+It also, of course, seems to be the name Thoth.
+
+Dee does this. However, Michael says: Nope, wrong. You'll understand in the next call. 
+
+## Action Eight (Later, same day)—More instruction, promise of *Soyga*
+
+M: Double letters are double numbers, being the Name of God. (Specifically Aa: So Heb was perhaps wrong.) So when you double letters up, combine. ThAOTh
+
+Dee mentions the 42-letter name of God:
+
+<center><img src=http://cdn1.kabbalah.com/wisdom/AnabKoach.png></center>
+
+Dee explains this as Latin: Pater Deus, Filius Deus, spiritus sanctus Deus: Tres in uno, et unus in tribus. Vel Trinitas in unitate et unitas in Trinitate. {1241} (Trinitarian Creed etc.)
+
+Pater Deus, Filius Deus, et Spiritus Sanctus, Deus, attamen non tres Dij sed unus Deus. {807}
+
+Sicut anima rationalis, et caro, homo unus, ita Deus et homo Messias unus. {659} (As the rational mind and flesh of a person are one, so too are God and man one messiah.) [Ruach + Nephesch = 1 [Serpent?]; Deus + Homo = Messiah (357)]
+
+(Some calculations relating the 40 numbers outwith with the 42 letter name of God, which is there in potential but not actuality...?)
+
+42-letter name is Ana B'Koach—7 names of 6 letters each, for 7 planets/days of the week.
+
+http://iyyun.com/teachings/ana-bkoach
+
+1 2 3 10 400 90 = 506
+100 200 70 300 9 50 = 577
+50 3 4 10 20 300 = 387
+2 9 200 90 400 3 = 704
+8 100 2 9 50 70 = 239
+10 3 30 80 7 100 = 230
+300 100 6 7 10 400 = 823
+=3466
+=7 12 (Planets/Zodiac)
+=19 (Star)
+=20 (Kaph/Jupiter)
+=2 (Chokmah or Duality)
+
+"Satan" in QBLH being the force of division - dividing things.
+
+Out of this circle no creature shall pass, that entereth, if he be made upon the Earth.
+This circle created all beasts etc of Earth, as will be revealed in Adam's Treatise From Paradise (Liber Soyga).
+Alpha and Omega:
+Primus et Nouissimus; unus solus Deus viuit nunc et semper: Hic est, et hic erit: Et hic, sunt Nomina sua Diuina. {1060} (First and newest, one alone God lives now and ever: He is and he will be, and here are his Divine Names. I have spoken."
+
+Benedicamus Dominum. {167} (Let us bless the Lord)
+
+Blessed are those whose portion is not with the wicked.
+Wicked = BABALON.
+portion not with wicked = who have given all, not just a portion (speck of dust) to Babalon?
+
+## Action Nine—March 20, 1582, 10:00:00
+
+<center><img src=https://i.imgur.com/TH1Ge6b.gif></center>
+
+Dee makes, corrects and uses new prayers. Uriel appears with thanks and says they can't appear now, but will come at noon. [Note: Gemini is ascendant, perhaps suggesting that communication will be unclear?]
+
+Dee: Fiat voluntas Dei. {161}
+
+## Skipped Action—March 20, 1582, 12:00:00
+
+<center><img src="https://i.imgur.com/eih7mo5.gif"></center>
+
+This is the time Uriel requested Dee and Kelley to call him at—Kelley drops the ball and they don't get it together until 2 PM. Of course, the only sign that has changed is the Ascendant—the horizon line—from Gemini to Cancer. Note that the ascendant changes every two hours—specifically suggesting that Uriel was waiting out Gemini, as he tells Dee to try again in two hours. Gemini tends to have an association with duplicitous or two-faced communication, perhaps suggesting Uriel either wanted clear lines or wanted to make sure *Dee and Kelley* were communicating properly, or even that the magic-as-communication itself worked properly. Interesting stuff.
+
+## Action Ten—March 20, 1582, 14:00:00
+
+<center><img src=https://i.imgur.com/MdtuQFg.gif></center>
+
+[Ascendant still in Cancer, but about to click over into Leo]
+
+Michael and Uriel appear immediately in stone (as if waiting?) M goes and returns with another angel on his right shoulder, carrying 7 little white baskets of gold. M wants the doors shut. 7 baskets hung round canopy of beaten gold. 
+
+Ecce, Mysterium est. Benedictus Dominus Deus Israel. {465} (Behold, it is a mystery. Blessed be the Lord, the God of Israel. Psalm 7:18)
+
+Canopy stretched to cover all the world (world, heaven, earth in stone) so heaven can be seen. Baskets hang in border of horizon [Note the Ascendant, horizon calculations; also Horus as lord of Horizon?]
+
+Dee asks for Sapientiam {97}, Wisdom (Chokmah).
+
+Dee gives the 7 names he has generated, and Michael corrects the spellings and orders, giving:
+
+Galas
+Gethog
+Thaoth
+Hor[omega]n = Horon
+Innon
+Aaoth
+Galethog
+
+<p style="font-family: Enochian Writing">
+Galas
+Gethog
+Thaoth
+Horon
+Innon
+Aaoth
+Galethog</p>
+
+
 
 
 
