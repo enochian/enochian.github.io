@@ -330,6 +330,96 @@ Michael over them with sword again, which lightens. Speaks, stops, fire flies fr
 
 
 
+**e [Graph]/21.** LIttle one, body full of little e, under each a 21. Goes away behind chair. M: Bestia deuoravit populum meum, peribit autem in aeternum. {537} (The beast devoured my people, but he will perish forever.) (See V&V)
+
+**10/b [Pa].** Bloody apparel, body full of serpent heads, 10/b on forehead. Goes away. M: Iniquitas Abundat in templo meo, et sancti viuunt cum Iniquis. {589} (Iniquity fills my temple, and the holy live with the unjust—this seems to echo V&V. Unjust = below abyss? Geburah?)
+
+**11/A [Un].** Very lean, hungry (starved?), 11/A on breast. Went away. {Came another?} M: Iniqua est Terra malitijs suis {307} (The earth is unjust in its malice [more QBLH?])
+
+**15/I [Gon].** Bloody sword drawn, on breast great 15/I. Went his way. M: Angeli eius ministrauerunt sanctis. {353} (His angels have served the saints)
+
+**a/8 [Un].** Target and little 8/a on it. Went away. (Originally 8/a but corrected by Uriel—note, this is *wrong* in the printed versions of the Sigillum I've found.) Regnabit Iniquitas pro tempore. {304} (Wickedness will rule for a time.) [JL: "Wicked" = BABALON in Enochian. Time = Saturn. Binah.]
+
+**16/r [Don].** Golden crown [Tiphareth? Kether?], great arming sword. Clothing of gold, 16/r on sword. Went away. M: Nulla regnat virtus super terram. {347} (No power rules upon the earth)
+
+*n [Drux].* Having his body under white silken habit (as they all had) very brave, great ruggs, cut hose, great bellyed dubblet, velvet hat w feather, advanced braggingly. [Chesed?] Burnt into forehead; n. M: Non est numerus illius in Caelis. {316} Went away. M: Antiquus serpens extulit capit suum deuorans Innocentes. Halleluyah. (692, or 599 w/o Halleluyah.) (The ancient serpent has raised up his head, devouring the innocent.) [**DING DING DING DING**]
+
+[Note and compare repetitions of "n" alone]
+
+*6/a [Un].* Puts off white habit, takes sword, smites up into air, thundered, and he had a seal suddenly there od gorgeous gold and precious stones. Regnum meum. Quis Contradicet? {278} (My Kingdom. Who resists it?) [Malkuth] Out of his mouth, many little n's, A on forehead. M: Non quod est A, sed quod contradicit A. {313} Nec protio, nec numerus euus invenitur in caelo. {454} Habet autem Numerum terrestrem. {308} Mysterium. {127} "It is not because he is A, but because he resists A. Neither his portion nor his number are discovered in heaven. Therefore he has the number of the earth, which is a mystery." (Malkuth/Mystery Babylon?) He shows three figures of 6: 6 <sup>6</sup> 6, set in triangle. Vobis est Mysterium hoc, posterius reuelandum. {481} ("A mystery to be revealed to us.")(Peterson: "A mystery is to be revealed to you afterward." Does this mean the coming of the Aeon of Horus, Vision/Voice sessions and the coming of the Beast Therion?) Fire consumes him and his chair away suddenly. 
+
+[Where do Michael's interstitial announcements go? Attributions not clear if pertaining to White Creature exiting or incoming.] M: Perturbatur terra iniquitate sua. {352} (The earth is thrown into confusion by his/her wickedness.) (Malkuth -> Coronzom -> Babalon?)
+
+perturbō ‎(present infinitive perturbāre, perfect active perturbāvī, supine perturbātum); first conjugation
+
+I confuse
+I disturb or perturb
+I trouble or alarm {JL: "Frater Perturbo" funny joke}
+
+*O [Med]/10.* Spirit's garments are white under, face brass, he is a leper. O/10 on breast. Departs. (Uriel: "The first letter of Perturbatur, doth not make shew, of the letter following as other before did. {?}) M: Surgite O Ministri Dei: Surgite (inquam) Pugnate: Nomen Dei est aeternum. {432} (Arise, O servants of God. Arise (I say) and fight. The Name of God is eternal.)
+
+**5/G [Ged] and h [Na]/14.** Two come out together, two-edged swords in their hands, fire coming out of their mouths.  
+
+**o [Med]/17.** M: Omnis terra tremet ad vocem tubae illius. {366} (All the Earth will tremble at the sound of that trumpet.) [Israfel - ATU XX, Shin/Aeon] One steps out with trumpet under habit. To mouth but blows not. 
+
+**s [Fam] that is also a 5.** M: Serua Deus populum tuum, Serua Deus populum tuum Israel, Serua (inquam) Deus populum tuum Israel. {993} (O God, save your people; O God, save your people Israel; O God, save (I say) your people Israel). Spirit with firey sword, bloody, vesture bloody. M: Est numerus in numero. {236} (He is the number in the number)
+
+*a [Un]/5.* Spirit with diverse ugly faces, body scabbed. M: Nunc sunt Dies tribulationis {300, Shin/Judgment/Aeon?} (Now are the days of troubles). M: Hic est Numerus predictus. {264} (This is the number that was foretold) M: Audite, consummatum est. {231 = 231 Gates of Chokmah} (Listen: it is finished). Pot of water in hand, upon pot graven a/5. {Aquarius?}
+
+*a [Un]/24.* M: Angele preparato Tubam tuam. {238} (O angel, prepare your trumpet) {Shin?} One comes out with trumpet—Venite Tempus. {152} (The time comes). Again he blows it not. at end is an a/24.
+
+All leave. Michael returns with two, and says "Hij duo Caelati sunt adhuc" {210—NOX}. (These two were still hidden = 2 to 0?) They go away.
+
+M: Vale. Natura habet terminum suum. {303} (Farewell. Nature has its own limit.) 
+
+He blesses with sword, Uriel follows him (Uriel has not appeared during these visions).
+
+---
+
+After dinner Kelley retires to prayer. Uriel appears and says something's off in the seal.
+Some dodginess w Kelley.
+M: Veritas est sola in DEO. Et haec omnia vera sunt. {402} Michael says Dee ommitted nothing, but Kelley forgot to tell you some stuff.
+Calls Semiael Semieil. Consummatum est. {175} It is finished.
+
+SUM (1 - (7 x 7))/7) Venus           175
+
+Suction                              YNYQH
+
+Duplicity                            MKPLH
+
+A slipping, falling                  NPYLH                {23a}
+
+Spirit of Venus                      QDMAL
+
+So seal of Babalon = It is finished. (!)
+
+Libr 175 is Astarte, Venus
+
+Shewer, white man, plucks out trumpet. He again does not blow. At end of trumpet appears a lower-case omega (i.e., one of—the last?—trumpets of Apocalypse?) [Greek Qabalah value: 800]
+
+https://en.wikipedia.org/wiki/Seven_trumpets
+
+"In Christian Eschatology, the first six trumpets are used to serve as a wake up call to the sinners on Earth and a call to repentance. Each trumpet blast brings with it a plague of a more disastrous nature than the one before it. The trumpet is used to build anticipation and tells the reader that an alert, announcement, or warning is about to take place. The seventh trumpet does not bring a plague with it. Rather, it is sounded so that glory is given to God and His kingdom is announced."
+
+Christians who follow the Posttribulation rapture doctrine, argue that the seventh trumpet is the last trumpet mentioned in I Corinthians 15:52,[21] and that there is a strong correlation between the events mentioned in Isaiah 27:13,[22] Matthew 24:29-31,[23] and I Thessalonians 4:16.[24] These parallels are used to support the doctrine of the rapture occurring after the tribulation. Therefore, Posttribulationists see the rapture happening during the seventh trumpet. The nature of the 7th trumpet shows that "time is no more, and that the mystery of God is finished, Rev. 10:6,7. At the 7th trumpet, Jesus rules and reigns forevermore,[25] He has taken His great power and reigned,[26] and He rewards the righteous, and judges the wicked.[27] Both Jesus and Paul declare that when Jesus comes, His reward is with Him, and He rewards everyone according to their works, Rev. 22:12,2 Tim 4:1.
+
+Of the three 6 <sup>6</sup> 6 noted, he puts out two lowermost w finer, says: Iste est numerus suus. {260} {This is his number}  
+
+Mist and horrible thunder arise. M puts his finger into trumpet and pulls out a gold plate with a round plate of gold in it, whereon is the figure "i" [but not Gon? drawn as Roman i] with many circles about. He says: Omnia unum es {129} Everything is one. Semeliel vanishes. 
+
+Michael sits in chair, legs gone. 
+
+Laudate Dominium in Sanctus eius {304} Praise the lord in his sanctuary
+
+
+Circumference, which is done, has 7 names. 7 names contain 7 angels. Every letter contain 7 angels. The numbers are applied to the letters. When you know the 7 names, you will understand the 7 angels. 
+
+Michael on decrypting the circumference: Start with 4 (over T) and read to the right—taking number for the next slot with letter to be read etc...
+
+[Duquette: Count clockwise when the number in the cell is positioned above the letter; count counterclockwise when the letter is positioned above the number.
+
+<center><img src=https://i.imgur.com/KiiKv0v.png></center>
+
 
 
 
