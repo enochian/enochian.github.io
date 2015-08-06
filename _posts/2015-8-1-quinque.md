@@ -6,6 +6,9 @@ published: true
 
 Following are notes on the "Five Books of Mystery" (Sloane 3188), covering December 22, 1581 to May 23, 1583. These *libers* begin with an abortive attempt at scrying using Barnabas Saul and proceed immediately into the successes attained as Edward Kelley (originally referred to as Edward Talbot) arrives at Mortlake. They detail the reception of the Enochian temple furniture, and precede the records reproduced in *A True and Faithful Relation*.
 
+<center><img src="http://img.photobucket.com/albums/v377/star_traveler/2009%20Nov%2021%20Enochian%20Vision%20Class/Figure20TheSigillumDeiAemethpage55n.jpg"></center>
+<center><em>The Sigillum Dei Aemeth.</em></center>
+
 # Mysteriorum Liber Primus 
 
 The angel or intelligence predominant in the entire world: Annael
@@ -533,6 +536,121 @@ Galethog
 <p style="font-family: Enochian Writing">Galethog</p></center>
 
 
+Michael now adds the figures in the "almond slice" shaped figures above each of the seven heptagonal sides, followed by a cross over circle with joined "OG" inside it. After each letter shows he puts it in his bosom. Each circle segment is pure gold. 
+
+M: Omnia unum est. {147} (All is one)
+
+M pulls all 7 plates from bosom, Uriel kneels down.
+
+Basket of east is opened. M: Divide the 7 parts of circle next unto that which thou hast done, every one, into 7. Dee: Seven, rest in 7: and the 7, live by 7: The 7, govern the 7: And by 7, all Government is. Blessed be he, yea blessed be the Lord: praised be our god. His Name be magnified. All honor and Glory be unto him now and for ever. Amen.
+
+Michael pulls seven birds out of baskets, each with letters in its feathers.
+
+[These form the names of the seven sides of the heptagon inside the outer rung.]
+
+[Note: [Language of the Birds](https://en.wikipedia.org/wiki/Language_of_the_birds)]
+
+[These may be Qabalistic code; they seem more suggestive of alchemical emblems, however.]
+
+**1. ZllRHia** White pigeon. Z on 1st 7 feathers of breast, first feather on left side. M: Mystery in 7, which are the 7 governing the 7 which govern the earth.
+
+**2. aZCaacb** White swan. M: Dixit et factum est. {181} (He spoke and it was so)
+
+**3. paupnhr** Green peacock. M: Et viuis tu cum illo: et: regnum tuum cum illis est. {496} (And you live with him, and your kingdom is with those.) 7 gold, fiery feathers.
+
+**4. hdmhiai** Red, fiery gryphon, scales like brass. Dedit illi potestatem in caelus. Potestas illius magna est. Orate. {576} (He gave power to them in heaven. His power is great. Pray.)
+
+**5. kkaaééé** Gold Eagle, circle of feathers in breast, 12 equal squares between four parallel lines, and one on top.[JL: Reminiscent, perhaps, of the breastplate worn by the High Priest of the Israelites, though this may be a stretch.] Magnum est DEVS in Angelis suis. et magna est illorum potestas in Caelis. {642} (Mighty is GOD in his angels, and great is their power in heaven. Pray"
+
+**6. iiéélll** Phoenix or Pelican, size of swan, fiery and sparkling. Bill bent into breast and it bled. [18º SR/Rosicrucianism] M: Nuncius tuus est magnus in caelis. Nuncius {91} = Medieval latin for Gabriel (Messenger of Heaven). Uriel now appears, also with legs like pillars of brass. "This is a mystery. He is here, and not here which was here before. {Dee: ie Michael}"  [Pelican is a common Medieval symbol and can even represent the Passion of Christ and the Eucharist. [here](http://bestiary.ca/beasts/beast244.htm) and [here](https://en.wikipedia.org/wiki/Pelican#Christianity)
+
+**NOTE: Sir Francis Drake's famous ship was initially called Pelican, and adorned the British halfpenny coin.[here](https://en.wikipedia.org/wiki/Pelican#Christianity)**
+
+**7. ééllMG+** Fowl with many wings, with Tablet on forehead. [Note: Not birds, but Seraphim have six wings. [Isaiah 6:2](http://biblehub.com/isaiah/6-2.htm)] M: Dedit angelis potestatem in lumine Calei. (He gave power to his angels in the splendor of heaven.) (Geburah/Hod—pillar of severity; connecting path M, water, Hanged Man. Note Mem as first letter of Michael.) M again appears w legs of brass. 
+
+M: Et Coniunxit illos DEV in unum. {307} (And God joined them into one.)
+
+Baskets fly up, vanish, heaven appears. Michael tells Uriel to expound the Mysteries (this seems his job). Dee asks for perfect knowledge and Understanding (Da'ath and Binah). They leave the two to contemplate it for 15 minutes, then return. 
+
+In Enochian, these seven Heptagonal names may be: 
+
+<center>
+<p style="font-family: Enochian Writing">ZllRHia</p>
+
+<p style="font-family: Enochian Writing">aZCaacb</p>
+
+<p style="font-family: Enochian Writing">paupnhr</p>
+
+<p style="font-family: Enochian Writing">hdmhiai</p>
+
+<p style="font-family: Enochian Writing">kkaaééé</p>
+
+<p style="font-family: Enochian Writing">iiéélll</p>
+
+<p style="font-family: Enochian Writing">ééllMG+</p>
+</center>
+
+7 diverse (multiple?) crosses and 7 letters: 7 seats of the One and everlasting God. 7 angels proceeding from every letter and Cross so formed.
+
+This outer name (on gold plates) is: GALETHOG
+
+Enochian:
+
+<center><p style="font-family: Enochian Writing">GALETHOG</p></center>
+
+
+Substance: FATHER
+
+Form: SON
+
+Inwardly: HOLY GHOST
+
+[Note: All seven letters contain cross or cross/circle {Rose-Cross?} motifs, EXCEPT "XE," unless X is taken as a cross. These seem perhaps some kind of Cross/Circle permutations.  ]
+
+Every letter contains an angel of brightness, comprehending the 7 inward powers of God (holy ghost) known to none but himself. Sufficient BOND [Dee calls emphasis to this] to urge all Creatures to life or Death, or anything else contained in the world. Banishes wicked, expels evil spirits, qualifies water, strengthens just, exalts righteous, destroys Wicke. 1 in 7, Twice in 3 (i.e. 2 x 3 + 1). Refer the numbers to upper circle. 
+
+[Begin Duquette.
+
+Combining the seven names of the outer ring with the seven sigils revealed within, we get:
+
+Galas (+G5 sigil)
+
+Gethog (A+25 sigil)
+
+Thaoth (+oL sigil)
+
+Horon (XE sigil)
+
+Innon (oT sigil — note OTO / Operating Thetan)
+
+Aaoth (HoT sigil)
+
+Galethog (Tog sigil)
+
+Taken together, we receive the "Supreme God Name of the Sigillum Dei Aemeth"
+
+<center><img src="https://i.imgur.com/9Zr99U2.png"></center>
+
+
+[NOTE: The legs like Pillars of Brass most likely represent Boaz and Jachin, the pillars of Solomon and initiation into the Western mysteries, particularly Masonry. They stood on the porch of the First Temple, and were taken to Babylon by the Chaldeans; they of course also later appear in the High Priestess card for Gimel, initiating to Kether. All of these (even Masonry—how long do the pillars go back?) antedate the Enochian revelations [Wait, no. see below.]. https://en.wikipedia.org/wiki/Boaz_and_Jachin The message here seems to be of Michael and Uriel acting as Initiators into the Mysteries. The pillars were 18 cubits {27 feet) high and 12 cubits (18 feet) in circumference {5.7 ft diameter}.
+
+[History of pillars](http://phoenixmasonry.org/history_of_the_two_pillars.htm)
+
+"Also around 1450 the will of a mason from Beverley gives a tantalising glimpse into the emergence of masonic regalia. An inventory of John Cadeby's possessions mentions several zonas, or girdles. Two were silver mounted, and one of these had the letters B and I in the middle, indicating Boaz and Jachin,the twin pillars of Solomon's Temple.[34] He also owned a writing table and six English books, making him comfortably well-off and literate.[35]" (https://en.wikipedia.org/wiki/History_of_Freemasonry) From  John Yarker, The Arcane Schools, Manchester 1909, pp341-342
+]
+
+[Also note Crowley's similar use of a bird code in "The Heart of the Master". The birds used there are:
+
+Swan: AUMGN
+Phoenix: AL
+Raven: AMEN
+Eagle: SU
+Hawk: AGLA
+Pelican: IAO
+Dove: HRILIU
+Ibis: ABRAHADABRA
+Vulture: MU}
+]
 
 
 
