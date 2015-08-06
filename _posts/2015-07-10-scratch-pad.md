@@ -106,3 +106,104 @@ https://en.wikipedia.org/wiki/Roanoke_Colony
 https://en.wikipedia.org/wiki/Jamestown,_Virginia
 
 https://en.wikipedia.org/wiki/British_Empire
+
+##### Gematria
+
+Hebrew: Gematria
+
+Latin: Latin Qabalah Simplex
+
+Greek: Isopephy
+
+Arabic: Abjad
+
+English: New Aeon English Qabalah, or the various other claimants to the Book of the Law code. Or simply transliterating into Hebrew (Eshelman).
+
+##### Bible Translations
+
+Dan on translations:
+
+Hey, what would you say the most accurate edition of the Bible is outside of reading original Herbew and Greek?
+King James?
+
+Depends on the type of accuracy you are looking for. Technically it would be the Vulgate, which was the first Latin transaction by Saint Jerome. The first english translation was shit from what I remember. The King James is great, but contains a lot of 16th century English. The New King James does a way with some of that. The NIV is industry standard for scholars these days, but is sometimes weak on translations of "Law" (which should be "Torah") and "The Flesh" (which is the difficult transaction of the greek "Sarx").
+ah interesting
+i'm ok with old english
+why is NIV standard?
+also it's not this one?
+http://www.amazon.com/The-Street-Bible-Rob-Lacey/dp/0007107900
+
+They actually dedicate full books on how to pick a translation. The continuum tends to be between: Better meaning > closer direct transaction of the greek even if you lose meaning.
+"First off, nothing. No light, no time, no substance, no matter. Second off, God starts it all off and WHAP! Stuff everywhere! Genesis 1:1"
+
+lol That bible, and "The Message" are one man transactions, rather than having a whole group of scholars. I hate those translations with my soul.
+interesting
+hahaha
+eventually i want to get to the hebrew and greek
+
+NIV is industry standard because it is considered very close to even on the continuum.
+ok, got it
+and KJ is closer to greek?
+i suppose I can just pull the originals of single lines and do the isopephy etc instead of the whole thing
+
+Yes, but it loses some of the nuance of meaning, pretty much no one but the wingiest of wingnuts use that, so most people use New King James.
+
+My first scholarly bible was New King James.
+wait KJV is wingy wingnuts?
+omg
+"The New King James Version (NKJV) is a modern translation of the Bible published by Thomas Nelson, Inc.[1] (a subsidiary of News Corp)."
+
+Yeah
+
+Exactly
+
+The King James takes literal liberties with transactions that have no nuance with historical context.
+
+*translations
+so for scholarly reasons NKJV may be best?
+
+I keep it around and contrast it with NIV on occasion.
+it looks like NIV was meant to be in "common language" though
+ie dumbed down?
+
+Not really, it puts it in common language, as it not 16th century english, but 20th-21st century english. Its more style that substance changes.
+
+*than
+
+I spent a lot of time looking at NIV vs NKJ in my New Testament Exegetical class... its really more "removing the thy's and thous".
+hahah
+ok this has been really helpful, thanks
+i'm working on some computer analysis tools for this stuff
+
+Fun. Always happy to help.
+any other translations to be aware of?
+me, greg, joel and others may get a ravenloft game going btw
+i tried to sell them on dark ages but it was a no gi
+
+ESV NASB are used regularly. NLT is shit IMHO but used by people who need like a 8th grade reading level.
+
+#### To read
+
+Aquinas, Summa theologica, on Angels
+
+Pseudo-Dionysus the Aeropagite
+
+#### Dee and Freemasonry
+
+http://www.levity.com/alchemy/h_dee.html
+
+http://www.abovetopsecret.com/forum/thread592308/pg1
+
+http://www.redicecreations.com/article.php?id=244
+
+#### Dee's Nemesis: Francesco Pucci, the Turncoat
+
+https://en.wikipedia.org/wiki/Francesco_Pucci
+
+"By 1585 he had joined Sozzini in Poland. At Cracow he fell in with John Dee and Edward Kelley, who initiated Pucci into their angelic experiences; and about the middle of 1585, despite objections from Sozzini, he accompanied them to Prague. On his arrival there, an angelic voice bade him re-enter the Roman communion, which he at once did. He wrote to Sozzini and other friends, entreating them to follow his example. Dee and Kelley suspected him of bad faith in treating against them with Roman Catholic ecclesiastics; he exculpated himself in a letter of 17 September 1585, which was printed."
+
+https://en.wikisource.org/wiki/Pucci,_Francesco_(DNB00)
+
+http://www.levity.com/alchemy/h_dee.html
+
+"Pucci proposed the organization of a secret "republic" of good people in all lands, who would prepare the world for a great council that would reunify Christianity. Borrowing from the notorious Anabaptists, whose implication in social and political revolution decades earlier had rendered their name anathema in all respectable circles, Pucci's scheme envisaged "Colleges" being established, whose principal officers would include a Provost, a Chancellor and a Censor, elected for terms of four years by males over the age of 25. There were to be central delegate meetings from time to time in friendly territories, which would take place incognito if necessary, using the guise of merchants. Outwardly the organization was to observe conformity to the laws of a land and to obey the civil magistrates, stipulations which indicate a Familist influence on Pucci's thinking. His objective was the unification of all peoples in a comity that reached even the mosque and the synagogue. His immediate target – the eradication of the Christian schism – would be effected by the calling of a general council of "spiritual persons" and "lovers of truth". At times he contemplated this council being called by the Pope.32"
