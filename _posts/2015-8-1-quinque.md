@@ -583,11 +583,11 @@ In Enochian, these seven Heptagonal names may be:
 
 <p style="font-family: Enochian Writing">hdmhiai</p>
 
-<p style="font-family: Enochian Writing">kkaaééé</p>
+<p style="font-family: Enochian Writing">kkaaeee</p>
 
-<p style="font-family: Enochian Writing">iiéélll</p>
+<p style="font-family: Enochian Writing">iieelll</p>
 
-<p style="font-family: Enochian Writing">ééllMG+</p>
+<p style="font-family: Enochian Writing">eellMG+</p>
 </center>
 
 7 diverse (multiple?) crosses and 7 letters: 7 seats of the One and everlasting God. 7 angels proceeding from every letter and Cross so formed.
