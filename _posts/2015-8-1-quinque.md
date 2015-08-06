@@ -520,20 +520,20 @@ Innon
 Aaoth
 Galethog
 
-<center>
-<p style="font-family: Enochian Writing">Galas</p>
+<center><p style="font-family: Enochian Writing">Galas</p></center>
 
-<p style="font-family: Enochian Writing">Gethog</p>
+<center><p style="font-family: Enochian Writing">Gethog</p></center>
 
-<p style="font-family: Enochian Writing">Thaoth</p>
+<center><p style="font-family: Enochian Writing">Thaoth</p></center>
 
-<p style="font-family: Enochian Writing">Horon</p>
+<center><p style="font-family: Enochian Writing">Horon</p></center>
 
-<p style="font-family: Enochian Writing">Innon</p>
+<center><p style="font-family: Enochian Writing">Innon</p></center>
 
-<p style="font-family: Enochian Writing">Aaoth</p>
+<center><p style="font-family: Enochian Writing">Aaoth</p></center>
 
-<p style="font-family: Enochian Writing">Galethog</p></center>
+<center><p style="font-family: Enochian Writing">Galethog</p></center>
+
 
 
 Michael now adds the figures in the "almond slice" shaped figures above each of the seven heptagonal sides, followed by a cross over circle with joined "OG" inside it. After each letter shows he puts it in his bosom. Each circle segment is pure gold. 
