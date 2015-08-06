@@ -207,3 +207,11 @@ https://en.wikisource.org/wiki/Pucci,_Francesco_(DNB00)
 http://www.levity.com/alchemy/h_dee.html
 
 "Pucci proposed the organization of a secret "republic" of good people in all lands, who would prepare the world for a great council that would reunify Christianity. Borrowing from the notorious Anabaptists, whose implication in social and political revolution decades earlier had rendered their name anathema in all respectable circles, Pucci's scheme envisaged "Colleges" being established, whose principal officers would include a Provost, a Chancellor and a Censor, elected for terms of four years by males over the age of 25. There were to be central delegate meetings from time to time in friendly territories, which would take place incognito if necessary, using the guise of merchants. Outwardly the organization was to observe conformity to the laws of a land and to obey the civil magistrates, stipulations which indicate a Familist influence on Pucci's thinking. His objective was the unification of all peoples in a comity that reached even the mosque and the synagogue. His immediate target – the eradication of the Christian schism – would be effected by the calling of a general council of "spiritual persons" and "lovers of truth". At times he contemplated this council being called by the Pope.32"
+
+---
+
+From Sara: Idea of [Xenolinguistics](https://en.wikipedia.org/wiki/Alien_language)
+
+Diana Reed Slattery http://psychedelicsandlanguage.com/
+
+Ralph Abraham on Math and ET http://www.ralph-abraham.org/articles/
