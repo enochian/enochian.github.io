@@ -9,6 +9,12 @@ Following are notes on the "Five Books of Mystery" (Sloane 3188), covering Decem
 <center><img src="http://img.photobucket.com/albums/v377/star_traveler/2009%20Nov%2021%20Enochian%20Vision%20Class/Figure20TheSigillumDeiAemethpage55n.jpg"></center>
 <center><em>The Sigillum Dei Aemeth.</em></center>
 
+Bibliographic references:
+
+Petersen, Joseph H., Ed. *John Dee's Five Books of Mystery.* San Francisco: Weiser, 2008.
+
+DuQuette, Lon Milo. *Enochian Vision Magick.* San Francisco: Weiser, 2008.
+
 # Mysteriorum Liber Primus 
 
 The angel or intelligence predominant in the entire world: Annael
