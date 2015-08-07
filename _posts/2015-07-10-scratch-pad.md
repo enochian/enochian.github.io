@@ -215,3 +215,7 @@ From Sara: Idea of [Xenolinguistics](https://en.wikipedia.org/wiki/Alien_languag
 Diana Reed Slattery http://psychedelicsandlanguage.com/
 
 Ralph Abraham on Math and ET http://www.ralph-abraham.org/articles/
+
+---
+
+Margaret Thatcher as reincarnation of Elizabeth I? They look nearly identical in many images. Falklands/Spanish Armada
