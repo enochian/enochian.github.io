@@ -1004,6 +1004,8 @@ hga awaits eternally the address of her charge. is also the Arch-Harlot  (ever u
 On the mouth of the HGA’s kiss is IHS [75, Lucifer, Nuit, but doubtful. OR IHS = Yod Heh Shin, Mother letters, 315 = 5 x 63]
 Latin: In man is health / The highest is the likeness of man / God is the image of man i.e. = Nothing is of any importance but man and there is no hope but in man. God is Humanity.
 
+[Note: Obvious missed answer here is that IHS are the initials of the Jesuit Order. Note that Regardie later took a magical motto that was a variation on Jesuit motto] 
+
 Samekh (HGA) intersecting Peh (clashing warriors). 
 
 This Angel is of the 14TH KEY and 8TH KEYS (Tarot keys not Aethyrs). {Art and Adjustment}. Warden of POP. Angel reaches to crown and is ALSO the bigh priestess. 
