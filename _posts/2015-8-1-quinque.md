@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Mysteriorum Libri Quinque
+title: Liber Primus
 published: true
 ---
 
